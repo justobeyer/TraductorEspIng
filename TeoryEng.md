@@ -3208,3 +3208,170 @@ I am not asking that we hold those with resources in contempt. I am asking that 
 Because as long as we keep allowing the powerful to play the role of victims, we will never be able to build a system in which risk, merit, and reward are distributed with even a minimum of honesty.
 
 *(End of excerpt. In the margin, in Julián's handwriting: "This will bother them. Publish it anyway.")*
+
+---
+
+## Chapter 15 – *Julián's Paper (Part II): The Trapped Middle Class*
+
+*(Estanislao's note: This is the second excerpt from the paper. Julián used to say this one was "the most painful to write" because it was about people like him, his own class. When I read it for the first time, I understood why they killed him. This wasn't in anyone's interest.)*
+
+---
+
+*"On the Middle Class of San Aurelio and Its Ambivalent Relationship with the Theory of the Poor Little One"*
+
+By Julián Menéndez
+
+*Excerpt from the draft (June, one year before his death)*
+
+---
+
+To talk about the middle class of San Aurelio is to talk about a slow-motion tragedy.
+
+I don't mean an economic tragedy — that one is obvious, with cyclical impoverishments every decade. I mean a moral tragedy: the middle class of San Aurelio is trapped between resentment and arrogance, and uses the theory of the poor little one to avoid confronting either.
+
+Let me explain.
+
+**The Middle Class as an Aspirational Ideal**
+
+Historically, the middle class of San Aurelio was built on a beautiful story:
+
+- Quality public education.
+- Real social mobility.
+- Professionals, teachers, shopkeepers, public servants who lived with dignity.
+
+That story was real for one generation. But it stopped being real decades ago, and the middle class doesn't know how to process the loss.
+
+So it clings to two contradictory narratives:
+
+**Narrative 1: "I'm not a poor little one — I'm middle class, I have an education"**
+
+This narrative surfaces when the middle class looks downward. It distances itself from the working-class neighbourhoods with phrases like:
+
+- "I don't claim welfare — I work."
+- "I made an effort, I built a career. I'm not one of those people waiting for the State to keep them."
+- "The poor little ones are someone else. I have culture, values, a future."
+
+The middle class of San Aurelio builds its identity in opposition to the poor. It needs to feel there is someone lower down in order to avoid facing the fact that it is falling.
+
+**Narrative 2: "Poor little me — I studied and this country doesn't value me"**
+
+This narrative surfaces when the middle class looks upward or outward. It victimises itself with phrases like:
+
+- "I did everything right: university, postgraduate degree, languages. And what for? This country doesn't deliver."
+- "Poor little me, breaking my back and still not making it to the end of the month."
+- "They'd value me abroad — here they just look right through me."
+
+Notice the contradiction: the very same person who looks down on the "poor little one at the bottom" for "asking for help" becomes the "poor little one at the top" the moment they feel the system isn't giving them what they deserve.
+
+**The Case of the Frustrated Professionals**
+
+I have worked with hundreds of middle-class students at the university. What I see is heartbreaking.
+
+They arrive expecting that a university degree is an automatic passport to "the middle class of the old days": stability, consumption, recognition.
+
+When they discover that the job market doesn't work that way — that there are more graduates than positions, that salaries don't stretch, that the promised meritocracy was a myth — the response is not "I'll adapt" or "I'll build something new."
+
+The response is: "This country screwed me over. Poor little me, who did everything right and still ended up nowhere."
+
+They feel cheated. And they're right to feel that way. The problem isn't the feeling — it's the conclusion.
+
+Because the conclusion is never "the education model is out of date" or "I need to reinvent myself." The conclusion is always external:
+
+- "It's the government's fault."
+- "Employers exploit you."
+- "The poor live off the State and I don't."
+- "The rich fix everything through connections."
+
+And so, instead of moving forward, they stand still — waiting for someone to hand them back their parents' middle class. Which is another way of waiting for someone to save them. Which is, in essence, the theory of the poor little one.
+
+**Resentment as Identity**
+
+The middle class of San Aurelio is angry. And it has its reasons.
+
+But the anger has become their only fuel. It doesn't generate projects — it generates complaints. It doesn't build alternatives — it builds enemies.
+
+I have listened to thirty-five-year-old professionals, with postgraduate degrees, talking in exactly the same way as someone on welfare:
+
+- "The system is against me."
+- "I did everything right, and it still went wrong."
+- "I deserve more than I have."
+
+The only difference is that the middle-class one says it with a specialty coffee in hand and the other with a mate on the pavement. But the logic is identical: victimisation as a strategy for avoiding change.
+
+**The Exodus as the New Escape Route**
+
+In recent years, thousands of middle-class professionals have left the country. And they have every right to.
+
+What worries me is not that they leave. What worries me is *how* they leave.
+
+They don't leave saying "I'm going to look for a better opportunity." They leave saying "this country didn't deserve me — poor little me, who had to go."
+
+They present themselves as victims of San Aurelio, as though the country had expelled them. And from abroad, they post on social media making comparisons:
+
+- "Back there I was getting nowhere — here I have a new car."
+- "Back there they looked right through me — here they value me."
+
+It's perfectly fine to celebrate individual progress. What isn't fine is building that progress on a foundation of retroactive contempt for those who stay behind.
+
+Because when a middle-class professional emigrates and says "poor little me, who had to leave," they are doing two things at once:
+
+- Absolving themselves of responsibility. "I didn't leave because I wanted to — I was forced out."
+- Cementing their identity as a victim. "I'm an economic exile, not someone who chose to migrate."
+
+And that narrative, multiplied across thousands of people, reinforces the idea that "nothing works here," that "everything is lost," that "anyone who stays is either a fool or too poor to have any other option."
+
+**Why Can't the Middle Class Escape the Trap?**
+
+Because it is caught between two fears:
+
+- The fear of falling (and becoming "one of those poor little ones").
+- The fear of not rising (and accepting that it will never recover the status its parents had).
+
+So it does the same thing as every other stratum: it clings to the narrative that someone owes it something.
+
+The entrepreneur's son says: "The State owes me protection so I don't go under."
+The middle-class professional says: "The country owes me a job that matches my qualifications."
+The neighbourhood worker says: "Society owes me welfare because I was born at a disadvantage."
+
+All of them waiting. None of them moving.
+
+**Those Who Do Move (and Get Crushed)**
+
+Because here is the key point: within the middle class, there are those who try to break out of the trap.
+
+They are the ones who:
+
+- Start businesses with no connections and no seed capital.
+- Learn new trades even when they already hold a university degree.
+- Reinvent themselves with every crisis instead of complaining.
+- Don't wait for the State, the market, or the outside world to save them.
+
+And what happens to them?
+
+The rest of the middle class looks at them with contempt.
+
+*"You've dropped a rung."* *"You're going to be a delivery rider with a university degree?"* *"Poor thing — had to settle."*
+
+The middle class of San Aurelio punishes socially anyone who adapts, because adaptation is an admission that "we are no longer what we were." And that admission hurts more than the crisis itself.
+
+So it would rather keep saying "poor little me, because this country won't give me what I deserve" than say "I'm going to do something different with what I've got."
+
+**Conclusion: The Middle Class Is the Battlefield**
+
+If the theory of the poor little one is going to be defeated anywhere, it will be in the middle class.
+
+Because the working class has already accepted that upward mobility is hard. The upper class already knows it can fall and land on its feet.
+
+The middle class is the only one that still believes in the promise of merit — but not in the effort that promise requires.
+
+It wants guaranteed results. It wants its degree to be worth what it used to be worth. It wants stability without risk.
+
+And when it doesn't get those things, instead of rethinking the strategy, it complains, it leaves, or it stays behind — bitter, waiting for everything to go back to how it was in the nineties, the seventies, or the golden era that was never quite so golden.
+
+Meanwhile, the ones who *do* move within the middle class — the ones who take risks, try things, fail, and try again — are seen as "the ones who didn't make it," when in reality they are the only ones building anything at all.
+
+I hope I'm wrong. I hope the middle class finds a new narrative — one that is neither contempt for those below nor victimisation of those above.
+
+But until that happens, the middle class will remain the loudest, most resentful, and most paralysed sector in the country.
+
+*(End of excerpt. In the margin, in Julián's handwriting: "They'll say I betrayed them. But someone has to say it.")*

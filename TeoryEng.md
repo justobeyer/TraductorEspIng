@@ -523,3 +523,232 @@ Most of his friends had taken — consciously or unconsciously — the easy road
 He didn't yet know what he was going to do. The only thing he was sure of was that this choice, repeated millions of times, was the one writing the destiny of San Aurelio. And of the whole country.
 
 And he didn't like the sound of that ending one bit.
+
+---
+
+## Chapter 3 — *The Owner of the Poor Little Ones*
+
+The rally was in the central plaza, but the banner said something else:
+
+"ENCOUNTER WITH THE PEOPLE."
+
+It sounded more intimate, more affectionate. As if the President were a relative coming back to the neighbourhood after a long time away. As if he were one of them — even though nobody from the neighbourhood had security detail, or a helicopter, or an Italian suit.
+
+Estanislao hadn't planned on going. He'd slept badly, turning over the events of the day before, the card in his pocket, Ramiro's words about the long run and the dead. But the soup kitchen closed early "so everyone can come together — it's a historic moment," said the woman in charge, in a tone that left no room for argument, and Ramiro practically dragged him there.
+
+—Come on, man. If you don't care about the country, at least go for the choripán —he joked, pulling him by the arm.
+
+The plaza was packed. The smell of chorizo and smoke from the grills mixed with the dust stirred up by the crowd. Flags of every colour — though the light blue and white of the party dominated — waved above people's heads. Drums, overloaded speakers, food stalls, balloons for the kids, official vans with live broadcast antennas, party militants in coloured vests handing out flyers and rosettes.
+
+On the stage, still empty, there was an enormous banner of the President smiling. His arms were open, as if waiting for a hug. The smile was perfect — the kind you only get after many rehearsals in front of the mirror. Below it, the slogan:
+
+"A LEADER CLOSE TO HIS POOR LITTLE ONES."
+
+Estanislao stopped dead. Something caught in his throat.
+
+—Did you read that? —he pointed at the banner, barely able to believe it.
+
+Ramiro looked and shrugged.
+
+—Well, it's marketing. People buy into that. Besides, don't you like being remembered? Before, they didn't even know we existed.
+
+He didn't answer. There was something about that word, now repeated in giant letters above his head, that burned the back of his neck. "Poor little ones." As if it were a title, an official category, a destiny carved in stone.
+
+---
+
+Before the main speech, a local congressman took the microphone. He was a man of about forty, tanned as if he'd just come back from the beach, in a light suit, open shirt, and easy smile. Estanislao had seen him on the campaign posters: "The People's Candidate." He'd never set foot in the neighbourhood until there were elections.
+
+—Thank you for being here, despite everything you suffer! —the congressman shouted, in a rehearsed voice that bounced off the speakers—. We know what you're going through! We know what hurts you! You are the heart of this country!
+
+Applause. Drums. Shouts of support.
+
+—For years, the powerful forgot about you — you from the humble neighbourhoods, the ignored, the left-behind… our poor little ones!
+
+More applause. The word floated now like a compliment, not an insult.
+
+Estanislao looked around. His grandmother, moved, was clapping with bright eyes. A woman nearby was crying, leaning on a friend. A man had lifted his son onto his shoulders so he could see better, like they were at a rock concert. There was something of a party about it, of carnival, of communion.
+
+Ramiro dug an elbow into his ribs.
+
+—Look, man. You get tangled up in concepts, but people understand one simple thing: this guy comes and tells you "I see you, I want you, I'll give you things." What more do you want? That's more than anyone's ever given us.
+
+Estanislao shrugged.
+
+—Maybe someone who tells you "I expect more from you," "I believe you're capable," "I'm done treating you like a poor little one" —he murmured, almost to himself.
+
+Ramiro laughed out loud, the laugh carrying over the music and the drums.
+
+—That doesn't win votes, brother. Nobody votes for the guy who makes you work. People vote for the guy who gives.
+
+---
+
+When the President finally took the stage, the crowd exploded. He was shorter than he looked on TV, heavier too, but his voice filled everything. There was something magnetic about him, an energy that made it impossible for people to look away.
+
+—My dear ones, my beloved poor little ones! —he opened, without a trace of shame, throwing his arms wide—. What a pride to see you all!
+
+Estanislao felt a chill. The word wasn't even wrapped in euphemisms anymore. It was direct, naked, and the crowd celebrated it. They chanted it back like a football terrace anthem.
+
+—I know you're struggling —the President continued, dropping his voice as if speaking to each person individually—. I know you work hard and earn little. I know you give everything and sometimes it's still not enough. I know! Because I came from the bottom too. Because I was a poor little one too.
+
+The crowd roared. That part of the story always worked. It didn't matter that the President owned three houses, four cars, and a Swiss bank account. What mattered was the "was": I *was* poor, I *was* like you, I *came* from the bottom.
+
+—That's why, as long as I'm here, nobody is going to ask you to carry that weight alone. That's what the State is for. That's what I'm here for: to protect you. So you don't have to break your backs for crumbs, like before.
+
+He paused dramatically. The silence was total.
+
+—Before, they made you believe that if you worked hard enough, you'd get ahead. Lies. Before, they sold you the story of merit, of sacrifice, of hard work. And you wore yourselves out for nothing! We're not going to sell you that story anymore.
+
+Estanislao frowned. That phrase, in the middle of the fervour, almost slipped past unnoticed. But he heard it clearly: *"Before, they made you believe that if you worked hard, you'd get ahead. Lies."*
+
+It was the first time he'd heard a politician openly say that effort was a con. That hard work was a trap. That it wasn't worth trying.
+
+—Today —the President continued, raising his voice— progress comes to you as a right, as justice, not through sacrifice. Not by working yourselves to death! Because you are the people, and the people are to be looked after!
+
+The plaza erupted — applause, flags, drums. His grandmother was crying with emotion. A neighbour was shouting "I love you!"
+
+*"Progress without sacrifice,"* Estanislao repeated in his head, like someone tasting a strange medicine. Was that even possible? Or was it the biggest trap of all?
+
+---
+
+When the rally ended, several officials came down from the stage to mingle with the crowd. Cameras, selfies, smiles, handshakes. All calculated for the photo op, but people felt it as real.
+
+Among them was someone Estanislao had seen a thousand times on TV: Elías Coronado, the star minister, the brain behind every social programme. They called him "the People's Architect." He was the one who designed the schemes, the cards, the subsidies. The one who decided who received and who didn't.
+
+Elías walked surrounded by advisors carrying folders, but stopped every now and then to hug someone, kiss a baby, hear out a grievance. He had the easy smile of the professional politician, but the cold eyes of a man who calculates every move.
+
+Suddenly he walked into Ramiro, who was more focused on his phone than on where he was going.
+
+—Sorry, Minister —said Ramiro, half-nervous, almost bowing.
+
+Elías put a hand on his shoulder, as if he'd known him his whole life. The gesture seemed genuine, but Estanislao noticed it was the same gesture he'd made with the ten people before.
+
+—Nothing to be sorry about, son. How are you doing? Working, studying, keeping your head above water? —he asked, with a measured smile.
+
+Ramiro held up the card from the new programme — the same one they'd picked up the day before.
+
+—Thanks to this, better. It helps me make it to the end of the month.
+
+The minister nodded, satisfied. He had the expression of a proud father.
+
+—That's what we're here for. So you never have to go hungry again. You see? As long as we're in government, no poor little one gets left behind.
+
+He took out a pen and wrote something in a notebook that an assistant held out for him. It was all protocol, but it looked improvised.
+
+—Name? —he asked.
+
+—Ramiro.
+
+—Ramiro. A good name. May you never be without help, Ramiro —he said, as if offering a blessing, a charm against misfortune.
+
+Estanislao watched in silence, fascinated and unsettled at the same time. There was something hypnotic about the minister, something that made people want to believe him.
+
+The minister turned toward him, as if noticing him for the first time.
+
+—And you? —he asked—. Have you signed up yet?
+
+—Yes —Estanislao answered—. But I have a question.
+
+Elías looked at him with a different glint, alert. The advisors tensed imperceptibly.
+
+—Go ahead.
+
+—Don't you think that if you're always helping us, you'll never ask more of us? —he shot back, without pulling punches—. I mean… if we're always poor little ones, when do we stop being that?
+
+A couple of advisors exchanged alarmed glances. This wasn't the usual question for a photo op. This kid wasn't following the script.
+
+The minister, however, smiled. He'd dealt with worse. He had years of practice dodging bullets.
+
+—What a great question, Estanislao —he said, spotting the name on the form another assistant already had in hand—. I'll be honest with you: in an ideal country, nobody would need help. We'd all have decent work, quality education, opportunities for everyone.
+But — he paused dramatically, calibrated to the millimetre — we don't live in an ideal country. We live in this one. And here, if we don't look after you, they'll eat you alive.
+
+He leaned in slightly, as if sharing a secret, lowering his voice so only Estanislao could hear.
+
+—Do you know what it's like to tell a mother she needs to "try harder" while her children are going hungry? Can you tell a kid who lives in the middle of gunfire that "with discipline, anything is possible"? That — he shook his head, with a rehearsed look of sadness — that is cruelty.
+We, on the other hand, say: "don't worry, we'll hold you up." That doesn't make you lesser. It makes you ours.
+
+*"It makes you ours."* The words hung in the air, heavy as lead.
+
+The minister gave him a pat on the arm and moved on to take photos with the next group of neighbours. He'd fulfilled his quota of interaction with critical youth.
+
+Ramiro looked at Estanislao with a half-smile.
+
+—He was trying to say "stop being a pain in the ass," but he dressed it up in a suit —he laughed.
+
+Estanislao didn't laugh. He kept chewing on the phrase.
+
+*"That doesn't make you lesser. It makes you ours."*
+
+In the end, the theory of the poor little one wasn't just a mistake. It was a tool of power. A way of keeping people who owed you, who needed you, who couldn't leave even if they wanted to. Eternal clients. Captive votes. Poor little ones forever.
+
+---
+
+Later, heading back to the neighbourhood, the mood shifted. The air was heavy — not from politics, but from something else.
+
+On the corner there was a black car Estanislao didn't recognise. An old but well-kept BMW, the kind that only rolls through the neighbourhood when it brings trouble. Low music, tinted windows. A couple of guys going back and forth, nervous, talking in whispers, eyes darting too much to either side.
+
+Ramiro lowered his voice.
+
+—The guys from the other side of the city showed up —he said—. They've got "work."
+
+"Work." Another word that changed meaning in the neighbourhood depending on who was saying it. Work could mean bricklaying, delivery, painting houses. Or it could mean something else. The thing nobody named but everyone knew.
+
+—What kind of work? —asked Estanislao, even though he already sensed the answer.
+
+Ramiro moved a little closer, like someone sharing a tempting secret.
+
+—They say they need couriers. People with bikes, who know the streets, who can move fast. Pays better than any warehouse job, no paperwork, no fixed hours. You pick up and drop off. Fast. No questions asked.
+
+Estanislao looked at his dented helmet, the neighbour's borrowed motorbike, the bills on the kitchen table that his mom tried to hide but he always noticed.
+
+—And what are they carrying? —he pressed, on the off chance there was any room left for naivety.
+
+Ramiro looked straight at him, with that look that said *you already know the answer.*
+
+—They're not pizzas, Estani.
+
+Silence. The BMW started up and disappeared down the dirt road, leaving a cloud of dust.
+
+—Look —Ramiro went on, dropping his voice even lower—. You kill yourself twelve hours so El Negro pays you next to nothing and maybe doesn't even put you on the books. It destroys your back, ruins your knees, eats your life. Here, in two months you make what you'd make there in two years. You buy your own bike, you help your mom, you fix your grandmother's roof that leaks every time it rains.
+In the short term — he smiled, a grin that was part temptation, part trap — you get out of poor-little-one mode.
+
+*"Getting out of poor-little-one mode."* The phrase hit him like a clean punch. That was exactly what he wanted. Just not like this. Not this way.
+
+—And in the long run? —he asked, almost by reflex.
+
+Ramiro reached for the same shield he'd used on the pitch. The same mantra the whole neighbourhood repeated.
+
+—In the long run, this neighbourhood swallows everyone, brother. Better grab something while you can. The ones who wait die waiting.
+
+---
+
+That night, Estanislao couldn't sleep. The bed creaked every time he moved, and the heat gave no relief.
+
+On one side: the words of the President and the minister — progress without sacrifice, eternal care, beloved poor little ones. A comfortable, safe path, but one that left you in the same place forever.
+
+On the other: the unspoken offer of the black car on the corner — fast money, forced respect, danger around every turn. A short, tempting path, but one that ended in prison or the cemetery.
+
+One promised you'd never have to try too hard again, as long as you played the part of the poor little one. The other promised you could "get ahead" fast, if you were willing to cross a line that few came back from unchanged.
+
+He didn't like either of them.
+
+In the notebook, he wrote again, with moonlight coming through the window:
+
+*"Path A: poor little one forever, but looked after.
+Path B: stop being a poor little one with dirty money, high risk.
+Is there a Path C?"*
+
+Below, without thinking too hard about it, he added:
+
+*"Path C = work hard, study, do things right, build something of my own…
+Problem: in this country, that path is almost invisible. Nobody shows it to you, nobody rewards it. The one who tries gets called a traitor, gets told he thinks he's better than everyone, gets told he abandoned his own."*
+
+He closed the notebook.
+
+He knew that sooner or later, someone was going to ask him point-blank:
+
+*"What are you going to do, Estani? Stay a grateful poor little one, get rich in the drug trade, or invent a path nobody around here believes is possible?"*
+
+And he realised something more unsettling:
+the whole country seemed to be wrestling with the same question, just at a different scale.
+
+San Aurelio, like him, was caught between being a poor little one forever, playing it smart at everyone's expense… or searching for a third path that had no name yet.

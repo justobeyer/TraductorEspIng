@@ -8,7 +8,7 @@ Traduce Español Inglés
 | Archivo / File | Descripción |
 |---|---|
 | [`La Teoría del PobrecitoVersion80.docx`](La%20Teoría%20del%20PobrecitoVersion80.docx) | Original en español |
-| [`TeoryEng.md`](TeoryEng.md) | **Archivo de trabajo principal (Markdown)** — Prólogo, Capítulo 1 y Capítulo 2 completos en inglés; capítulos siguientes se irán agregando uno por uno |
+| [`TeoryEng.md`](TeoryEng.md) | **Archivo de trabajo principal (Markdown)** — Prólogo, Capítulos 1, 2 y 3 completos en inglés; capítulos siguientes se irán agregando uno por uno |
 | [`teoryEng.docx`](teoryEng.docx) | Traducción en formato Word — Título, Prólogo y Capítulo 1 en inglés |
 | [`The Theory of the Poor Little One - Prologue and Chapter 1.docx`](The%20Theory%20of%20the%20Poor%20Little%20One%20-%20Prologue%20and%20Chapter%201.docx) | Copia de la traducción inicial (referencia) |
 
@@ -18,4 +18,5 @@ Traduce Español Inglés
 - **Prólogo / Prologue:** *Prólogo — Carne Viva* → *Prologue — Raw Flesh*
 - **Capítulo 1 / Chapter 1:** *País para Pobrecitos* → *A Country for Poor Little Ones*
 - **Capítulo 2 / Chapter 2:** *Pobrecito por Hoy* → *Poor Little One for Today*
-- **Capítulo 3 y siguientes / Chapter 3 onwards:** pendiente de traducción *(próximamente)*
+- **Capítulo 3 / Chapter 3:** *El Dueño de los Pobrecitos* → *The Owner of the Poor Little Ones*
+- **Capítulo 4 y siguientes / Chapter 4 onwards:** pendiente de traducción *(próximamente)*

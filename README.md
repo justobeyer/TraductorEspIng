@@ -8,7 +8,7 @@ Traduce Español Inglés
 | Archivo / File | Descripción |
 |---|---|
 | [`La Teoría del PobrecitoVersion80.docx`](La%20Teoría%20del%20PobrecitoVersion80.docx) | Original en español |
-| [`TeoryEng.md`](TeoryEng.md) | **Archivo de trabajo principal (Markdown)** — Prólogo completo en inglés; capítulos se irán agregando uno por uno |
+| [`TeoryEng.md`](TeoryEng.md) | **Archivo de trabajo principal (Markdown)** — Prólogo y Capítulo 1 completos en inglés; capítulos siguientes se irán agregando uno por uno |
 | [`teoryEng.docx`](teoryEng.docx) | Traducción en formato Word — Título, Prólogo y Capítulo 1 en inglés |
 | [`The Theory of the Poor Little One - Prologue and Chapter 1.docx`](The%20Theory%20of%20the%20Poor%20Little%20One%20-%20Prologue%20and%20Chapter%201.docx) | Copia de la traducción inicial (referencia) |
 

@@ -975,3 +975,241 @@ And something inside him — a small voice that didn't come from the TV, or from
 That question, more than any other, was the one that pushed him through the door of the cultural center.
 
 The door closed behind him with a soft click — but a different one from all the others he'd heard that day.
+
+---
+
+## Chapter 5 — *La Escalera*
+
+The La Escalera Cultural Centre occupied a thin, two-storey building wedged between a damp hardware store whose metal shutters were always half-rolled down, and a bakery that always smelled of something burnt. From outside, it drew no attention: a half-painted sheet-metal door, layers of graffiti nobody had bothered to clean off, and a wooden sign with a name bleached by sun and rain.
+
+*"La Escalera – Neighbourhood Cultural Centre"*
+
+There was a flyer taped to the door: "FREE TALK: FROM THE NEIGHBOURHOOD TO THE WORLD. Tonight 8pm. Nobody's going to ask you for anything."
+
+Estanislao arrived late. He'd been unsure about coming. He'd walked to the corner, turned around, walked back again. The message from the black car was still on his phone, unanswered. The Negro's motorbike was in the shop, so he'd come on foot — twenty blocks that gave him plenty of time to think through everything that had happened in recent weeks.
+
+From the outside, it looked like nothing.
+From the inside, another story.
+
+The moment he stepped in, he was hit by the smell of old coffee, books, and fresh paint. The floor was worn mosaic tile, some pieces cracked, covered over with small rugs in different colours. The walls were plastered with taped-up posters: theatre workshops, basic programming, reading groups, travel photos, talks with strange titles.
+
+*"From the neighbourhood to the world."*
+*"How to study when nobody in your house ever studied."*
+*"Stories of useful failures."*
+*"Merit is not a dirty word."*
+
+At the back, a group of about fifteen kids was listening to someone who spoke with a strange accent — a blend of countryside and city. There were plastic chairs in different colours, as if borrowed from different backyards, and a table with a thermos, mismatched mugs, and a packet of the cheap assorted cookies.
+
+—…the problem isn't that the country is poor —the voice was saying—. The problem is that it's full of people who've been convinced they can never stop being poor, because if they stop being poor, a lot of people are out of a job… starting with certain politicians.
+
+Shy laughter. Some uncomfortable glances. A guy with headphones hanging round his neck was looking at his phone. A girl with blue-dyed hair was taking notes in a notebook.
+
+Estanislao craned forward, trying not to make noise. The speaker had his back to the door, drawing something on one of those whiteboards — the kind you wipe clean with a cloth.
+
+He was a thin man, about forty-five, with sloping shoulders, a creased shirt tucked into trousers that had seen better days, worn but polished shoes. His salt-and-pepper hair, dishevelled, seemed to argue with gravity. The shirt had a coffee stain at chest-pocket height, with a burst pen clipped there. He wore reading glasses that he pushed up and down depending on what he was looking at.
+
+He didn't give off "important."
+He gave off "unconcerned."
+He gave off "seen things."
+
+He turned to face the group and Estanislao got a proper look at him.
+
+The eyes were something else: light, blue-grey, alive — as if they were always two or three thoughts ahead of whatever he was saying. There was something almost hard in his gaze, the look of someone who had seen too much and learned not to be surprised, but his voice was soft, almost warm.
+
+—Right —the man continued—, who here often hears the phrase "well… it is what it is"?
+
+Several hands went up, almost in resignation. Estanislao's too, without thinking.
+
+—Good. First lesson —he said, raising an ink-stained finger—: every time someone tells you "it is what it is," translate it in your head as "I can't be bothered to do anything better." It's not a description of reality. It's a confession of laziness. A surrender dressed up as wisdom.
+
+Some laughed. Others grew uncomfortable. The guy with the phone put it away for the first time.
+
+—My name is Julián —he added, writing it on the whiteboard in untidy letters—. Julián Menéndez. I come from the interior, from a town where "it is what it is" was religion. Trust me: if you buy into it, the game is over.
+
+He paused, as if noticing Estanislao standing by the door for the first time — helmet in hand, wearing an oversized bootleg club jersey.
+
+—You, the one in the knockoff club shirt —he said, pointing at him with the marker—. Is it also "it is what it is" out there, or did you come looking for something else?
+
+Estanislao's mouth went dry. He felt the other kids looking at him.
+
+—I don't know —he said, his voice steadier than he'd expected—. Maybe I came to see if there's something else. Maybe I came because I'm sick of being told what's what.
+
+Julián held his gaze for a beat too long. It wasn't a warm look, but it wasn't hostile either. It was as if he were weighing him on some invisible scale, calculating what he carried inside.
+
+—Bad news —he replied—: if it doesn't exist, you're going to have to invent it. Sit down. The coffee's cold but it wakes you up.
+
+---
+
+After the talk, the kids scattered among plastic chairs and cups of instant coffee.
+
+La Escalera was organised chaos. There was a mismatched library with underlined books and yellowed photocopies; three old computers someone had donated; whiteboards covered in phrases, diagrams, and drawings. In one corner, a world map studded with pins and handwritten names.
+
+*"Carla – Barcelona – 2019"*
+*"Luis – Santiago – 2021"*
+*"Gise – started something / still here – 2020"*
+
+Estanislao stood staring at the map. Each pin looked like a tiny hole in the wall through which someone had escaped their assigned fate.
+
+—The wall aches when someone's taken from it, you know? —said a voice beside him.
+
+It was Julián, plastic cup in hand, a tie hanging from his pocket as if he'd ripped it off in some other life.
+
+—What? —asked Estani.
+
+—The wall —Julián repeated, pointing to the map—. The neighbourhood. The country. When someone leaves or moves up, there's always someone who takes offence. "Who does he think he is?"
+That hurts. Especially the ones who got comfortable staying put.
+
+He took a sip of coffee and pulled a face.
+
+—Undrinkable, but it wakes you up —he added.
+
+—Did they… leave the country? —asked Estanislao, pointing to the names.
+
+—Some did. Others stayed, but climbed a couple of rungs —said Julián—. Not everyone needs an airport. Sometimes going from this neighbourhood to an office where they pay you on the books is already crossing a bigger border than any airport ever could.
+
+He was quiet for a few seconds, looking at him sideways.
+
+—What have you got? —he asked suddenly.
+
+—What do you mean?
+
+—Fear, guilt, urgency, anger, dreams… which one's closest to hand? —Julián listed, as if reading off a shopping list.
+
+Estanislao smiled, uncomfortable.
+
+—I've got… bills. Hunger, sometimes. And a new card they gave my grandmother —he said.
+
+Julián made a gesture, as if that confirmed something.
+
+—The card is a painkiller —he said—. And painkillers are dangerous. They take away the pain, but they also take away the urge to change whatever's causing it.
+
+He said it without bitterness, almost with sadness.
+
+—And studying here? —asked Estanislao—. Does it actually help?
+
+Julián shrugged.
+
+—Depends who you're asking. For the State, you're one more number on a spreadsheet. "Kid in a vulnerable situation accessing education." A medal in a report.
+For you… —he looked at him squarely— …it could be the difference between believing you're a poor little one by design, or understanding that you're poorly trained, which is something else entirely.
+
+Estanislao furrowed his brow.
+
+—I'm not sure I follow.
+
+—Doesn't matter —said Julián, with a crooked smile—. Do first, understand later. Understanding comes with experience, not with PowerPoints.
+
+He set the cup down on a table cluttered with papers.
+
+—If you come, you'll be tired, you'll curse the place, you'll feel like you wasted nights you could've spent making quick money. And I won't promise you anything heroic. Maybe in five years you'll still be in the same neighbourhood.
+But… —he raised a finger— …you'll stop depending on people who treat you like you're less than. And in this country, that's already a private revolution.
+
+He turned on his heel, as if the conversation were over, and began arguing something with a girl who was showing him a form.
+
+Estanislao stood rooted to the spot, with the feeling of having received a blow that was gentle but deep.
+
+---
+
+The days that followed were a kind of double life.
+
+Mornings and afternoons, the same routines: he helped out at the soup kitchen, ran errands on the Negro's motorbike, took his grandmother to her medical check-ups. Every now and then, a new message from the anonymous number:
+
+*"Short run today, good pay."*
+*"There are reliable people asking about you."*
+
+Sometimes he said yes. Other times he didn't reply. Each "ok" fixed something concrete in the house: a leak, a debt, a broken appliance. Fast, real, undeniable progress.
+
+At nights, twice a week, he sat in the plastic chairs at La Escalera, across from Julián.
+
+There, things were different. No money, no cards, no promises. Only uncomfortable questions.
+
+—Why do people in poor neighbourhoods put so much faith in luck and so little in effort? —Julián would ask, pacing back and forth with the marker in his hand—.
+Because it's what the system sells them: "you can't do it, but I can, and I'll toss you some crumbs." The theory of the poor little one is the best business going for those in power.
+
+He wrote on the whiteboard:
+
+*POOR LITTLE ONE = DON'T ASK TOO MUCH OF HIM*
+*DON'T ASK TOO MUCH OF HIM = DON'T CHANGE ANYTHING FOR HIM*
+*DON'T CHANGE ANYTHING FOR HIM = EVERYTHING STAYS THE SAME (BUT YOU STAY IN POWER)*
+
+And below, smaller:
+
+*A perfect racket.*
+
+Sometimes he used obscure words, examples from books nobody there had ever read. They got lost, gave him strange looks.
+
+—I don't get it, prof —someone would complain.
+
+Julián would barely smile.
+
+—It doesn't matter that you understand me —he'd reply—. What I care about is that one day you understand yourselves. I'm just noise in the background.
+
+Estanislao often struggled to follow the thread, but there were phrases that tattooed themselves into him.
+
+—*"The cruellest thing you can say to someone is: 'you can't do it, poor little one, let me do the thinking for you.'"*
+—*"Merit is not a dirty word. What's a dirty word is cronyism dressed up as entitlement."*
+—*"There are people in rich neighbourhoods with a poor little one mindset, crying on expensive sofas because 'life is treating them unfairly.'"*
+
+That last one caught his attention.
+
+—What do you mean there are poor little ones in rich neighbourhoods too? —he asked one evening.
+
+Julián looked at him with something close to satisfaction.
+
+—Of course —he said—. Poor little one is the man who has everything but thinks the world owes him more. Poor little one is the man who inherits a company and thinks respect comes automatically. Poor little one is the man who asks the State for protection so nobody can compete with him.
+The poor little one isn't a social class. It's a mental character.
+
+*"A mental character,"* thought Estanislao. It sounded like a chapter title.
+
+---
+
+In the neighbourhood, meanwhile, the contrast was growing harder to ignore.
+
+One afternoon, on his way back from La Escalera, he ran into one of the black car's clients — the one with the tidy house and the easy blessing. He was at a corner café, clean clothes, latest-model phone, yelling into it at someone on the other end.
+
+—Can you believe it, man. I busted my ass studying, did everything right, and now any nobody with a government handout is getting ahead of me —he was saying—. This country is a disaster, always giving everything to the poor little one…
+
+Estanislao stopped without meaning to. There it was, live: a middle-class guy who felt like a victim, who looked at those below him as pampered poor little ones… and who, at the same time, fed the night with the cash he handed over at his front door.
+
+*"Poor little one himself,"* thought Estani.
+Poor little one of himself.
+
+---
+
+That night he wrote in his notebook:
+
+*"The theory of the poor little one has versions:*
+
+*In the neighbourhood: 'don't ask too much of me, I'm already doing enough, the system owes me.'*
+
+*In the middle class: 'I deserved more, the system owes me.'*
+
+*At the top: 'without me everything collapses, the country owes me.'*
+
+*Different ceilings, same song: someone owes me something."*
+
+Below, he recalled a phrase of Julián's:
+
+*"When everyone feels like someone else's poor little one, nobody feels responsible for anything."*
+
+He closed the notebook.
+
+The message from the anonymous number came in late, nearly midnight:
+
+*"Big move tomorrow. Those who've already done short runs can level up. More risk, more money. Let me know if you're in."*
+
+Estanislao stared at the screen for a long time.
+
+That day, Julián had said something else that had cut him:
+
+—There's no moving up without risk. But there are risks that lift you and risks that sink you. And sometimes, from up close, they look exactly the same.
+
+He turned off his phone without replying.
+
+For the first time, silence felt like a possible answer.
+
+He hadn't left the dark path behind, but he was beginning, very slowly, to understand that the real ascent — the one that depended neither on the black car nor on the State's card — was the slowest, the most thankless, and the least applauded of all.
+
+The staircase that gave the place its name was no mere decoration: it was a sentence and a promise.
+You had to climb it rung by rung, without a lift, without a miracle, without a "poor little one" that could save you.
+
+And the worst of it — or the best — was that if he made it, he would no longer be able to blame anyone for what he did with his life.

@@ -1953,3 +1953,278 @@ It wasn't salvation.
 It was a first rung.
 
 And that, in a country full of broken lifts and locked-up staircases, was almost a miracle.
+
+---
+
+## Chapter 9 — *Those Who Protect Too Much*
+
+The workshop was a twenty-minute bus ride away, in a strange sort of zone: not quite a poor neighbourhood, not quite an elegant downtown. Neat warehouse sheds, murals in colours that seemed to belong to another country, a few startups with names in badly pronounced English.
+
+Estanislao had taken the 148 at seven in the morning, when the bus was still half empty. He watched through the window as the landscape shifted: first the low houses of the neighbourhood, then the grey buildings of the centre, then that in-between zone where old factories and new workshops coexisted side by side, as if the city wasn't quite sure what to do with that stretch of itself.
+
+He got off at a stop with no name, just a rusted pole. The air smelled of sawdust, paint, and something being built.
+
+The workshop sign was hand-painted, with uneven but firm lettering:
+
+*"TALLER GRIETA – METAL, WOOD, AND CRAZY IDEAS.*
+*(LOOKING FOR PEOPLE WHO ACTUALLY WANT TO LEARN)."*
+
+Below, someone had added in marker: *"And who can handle frustration."*
+
+Estanislao smiled. He liked that they were honest about it.
+
+He'd seen the notice at La Escalera. Julián had pulled it off a pole and pinned it to the board, with an arrow drawn beside it and a note in his messy handwriting:
+
+*"They need people here. Not cousins. Not friends. People who actually want to work."*
+
+He knocked on the metal door. The sound rang out through the morning silence. For a moment he thought there was no one there.
+
+But then he heard footsteps, a cough, and the door scraped open.
+
+The man who answered was in his mid-forties, lean, with an unkempt beard and eyes that were tired but alive. His hands bore the marks of work: small scars, calluses, one finger slightly crooked as if he'd broken it years ago and it had never quite healed right. He wore a paint-stained T-shirt and a leather apron that had seen better days.
+
+—What are you after? —he asked, straight to the point. No excess courtesy, but no hostility either. Just the efficiency of someone with things to do.
+
+—I saw the flyer… about the workshop. You're looking for people —said Estanislao, holding out the crumpled notice he'd been keeping in his pocket for a week, unsure whether to come or not.
+
+The man looked at him for a few seconds. He had the gaze of someone who sizes people up fast, who's seen plenty of kids walk through the door with good intentions and bad habits. As if he were working out whether Estanislao would last a week or a year.
+
+—Come in —he said at last, stepping aside.
+
+---
+
+Inside, the workshop was an ordered chaos. Or a chaotic order, depending on how you looked at it.
+
+Machines of every size filled the space: a bench saw with a gleaming blade, a welding machine with its mask hanging from the side, a lathe that looked like it belonged to another era but ran perfectly. On the workbenches lay half-cut planks, oddly shaped metal pieces, furniture prototypes unlike anything Estanislao had seen in the shops downtown. Hanging from the ceiling was something that looked like a bicycle, but with three wheels and an enormous basket at the front.
+
+The smell was a mix of sawdust, hot metal, industrial glue, and old coffee. To Estanislao, it seemed like the smell of things made by hand.
+
+—I'm Mauro —the man said, closing the door behind him—. I used to work at a big metalworks factory, the kind where there are three hundred employees and the owner never sees your face. One day I got fed up with the bosses treating me like I was part of the machinery — like my ideas counted for nothing, like twenty years of doing the same job made me worth less than some freshly minted accounting graduate. So I came and built this.
+
+He gestured across the workshop with a wide sweep of his arm, almost proud.
+
+—It's not much —he admitted—, but it's mine. Or I try to make it mine. The government taxes me like I'm Apple, but hey, that's the deal.
+
+Estanislao was captivated. It wasn't a giant factory — there were no mirrored windows, no receptionists with practised smiles — but you could tell that real things came out of this place. Things someone had thought up, designed, and built with their own hands.
+
+Mauro shrugged.
+
+—A bit of everything. Cleaning, learning the machines, helping with orders. I won't lie to you: it's not big money. It's a small workshop in a twisted country. But I pay on time and I couldn't care less whose nephew you are.
+
+He dried his hands on a rag.
+
+—One thing though —he added—: there are no "poor little ones" here. If you come, you come to learn and to bust your back. Not to moan about how unfair the world is while we scroll our phones.
+
+Estanislao smiled.
+
+—I already do that at home —he said.
+
+Mauro laughed too, for the first time.
+
+---
+
+They spent a couple of hours trying things out: carrying planks, measuring, sanding, listening to quick run-throughs on safety.
+
+—Don't touch that while it's plugged in if you want to keep counting to ten with the same fingers —said Mauro, pointing at a circular saw.
+
+He wasn't a soft boss, but he wasn't a tyrant either. When Estani did something right, he said so without overdoing it. When he did something wrong, he corrected him without humiliating him.
+
+—You're not here out of pity —he said at one point—. If you're useful to me, you stay. If not, I'll tell you and that's that. You're not a poor little one and I'm not an NGO.
+
+Estanislao liked that tone. He felt more like an adult there than in many other places where people treated him like he was made of glass.
+
+---
+
+At midday, Mauro pulled two food containers from a bag.
+
+—I'm covering you today, since you haven't earned anything yet —he said—. Tomorrow bring something yourself, so you don't start your working life in moral debt.
+
+They sat on a bench, surrounded by scraps of sawdust and metal.
+
+—How many people work here? —asked Estani.
+
+—We should be five or six —said Mauro—. But right now we're two and a half.
+
+—Two and a half?
+
+—Me, fully intact —he said, pointing to himself—. And a kid who comes when he can, between a thousand dramas. And now, if you're on board, maybe we add up to two and three-quarters.
+
+He stared at a fixed point on the wall for a moment.
+
+—I've tried to grow this thing several times —he said—. But every time I want to hire someone on the books, a mountain lands on me: contributions, regulations, inspectors, trade unions, stamps, "development levies," government reps who say they're coming to "protect the worker."
+
+He made air quotes.
+
+—And isn't it right that they protect the worker? —asked Estanislao, genuinely unsure.
+
+—Depends —said Mauro—. One thing is stopping someone from exploiting people. Another thing is treating every worker like they're a poor little one who can't negotiate anything for themselves, and treating everyone who wants to start something like a potential exploiter.
+
+He got up and grabbed a thick binder from a shelf.
+
+—Look at this —he said, opening it—. This is what I have to do, pay, and sign just to have one legally compliant employee. Insurance, social-security contributions, inspections, mandatory contributions, payments to trade unions I've never laid eyes on, permits, operating licences that take months…
+If I'm lucky, in a year it'll be cheaper to fire him than to have hired him.
+
+Page after page, forms, old stamps, receipts.
+
+—If I want to give you legal work tomorrow —he went on—, I sink. So I keep you like this: on trial, in the grey area. The moment I want to grow, the system says: "What do you think you're doing, kid? Think you're a businessman? We have to keep tabs on the poor little entrepreneur. Can't have you actually doing well."
+
+He gave a lopsided, bitter smile.
+
+—And then on TV, they say the country "protects the worker." Meanwhile, you can't get work on the books, and I can't get people to grow without putting my head in the lion's mouth.
+
+Estanislao thought about all those speeches — "protecting national jobs," "putting a stop to abuses," "looking after vulnerable sectors."
+
+—And the trade unions? —he ventured to ask.
+
+Mauro laughed without any joy in it.
+
+—No trade union ever came here to ask my guys how they were doing —he said—. But when I wanted to expand the workshop, one did show up. Not to offer training or help. To explain to me that if I hired more than three people I had to sign up to their collective bargaining agreement, pay their dues, and play by their rules.
+
+He put on a pompous voice to mimic them:
+
+—"Because your workers are poor little ones, Mauro — if we're not there to defend them, you'll exploit them."
+
+He thumped his own chest.
+
+—Me — someone who started out sweeping floors in a factory and knows exactly what a jerk of a boss looks like —he added—. They come and explain to me how not to exploit people.
+
+He shook his head.
+
+—The theory of the poor little one gives power to any organisation that shows up as a "defender" —he said—. The weaker they paint you and me, the stronger they paint themselves.
+
+---
+
+Leaving the workshop, Estanislao's head was full.
+
+Mauro had told him:
+
+—Let's try a week. If it works out, we'll sort something more permanent. I can't promise you glory, but I can promise you honesty.
+
+On the bus home, his phone buzzed.
+
+It was a voice message from Ramiro.
+
+—Hey, Estani, word is you're playing labourer in some little workshop. You're really going to break your back for pocket change while these bastards are raking it in? Come with us, man. No forms, no trade unions, no "poor little worker." Just pure competition. The ones who can handle it win.
+
+Estanislao looked out the window. They were passing an old factory, its gates covered in union graffiti:
+
+*"IF THEY TOUCH ONE, THEY TOUCH ALL OF US."*
+*"NO TO CASUALISATION. YES TO RIGHTS."*
+
+Alongside, someone had sprayed in aerosol:
+
+*"AND WHAT ABOUT THE RIGHT TO FIND WORK?"*
+
+He thought about Mauro, about the thick binder, about the glass-fronted company where the owners' children got promoted, about the trade union that had never once come to see his mother at the soup kitchen or his grandmother at the hospital.
+
+The world was beginning to arrange itself in his mind — not by class, but by role:
+
+Those who produced something real and fought just to breathe.
+Those who presented themselves as defenders of the poor little ones, but lived well off that defence.
+Those who resigned themselves to being poor little ones their whole lives.
+Those who wanted to be hustlers at any cost.
+
+Where was he going to be?
+
+---
+
+That evening, at La Escalera, Julián had the chalkboard covered in arrows.
+
+—Tonight we're talking about protectionism —he announced—. Not as an economics chapter, but as a mindset.
+
+He wrote:
+
+*"DON'T OPEN UP THE ECONOMY — WE NEED TO PROTECT OUR BUSINESSES."*
+*"DON'T DEMAND TOO MUCH — WE NEED TO PROTECT OUR WORKERS."*
+*"DON'T LET ANYONE IN FROM OUTSIDE — WE NEED TO PROTECT OUR PEOPLE."*
+
+—The word "protect" is a beautiful one —he said—. The problem is it can be used to justify anything.
+
+He drew three concentric circles: BUSINESS, NEIGHBOURHOOD, COUNTRY.
+
+—When an entire country sees itself as a poor little one in the face of the world —he explained—, it protects itself from everything: from competition, from new ideas, from investment, from being held to a standard. "We can't, we're not ready, our domestic market is a poor little one."
+
+He turned towards them.
+
+—And what happens when you don't compete? —he asked.
+
+—You fall behind —someone said.
+
+—You go soft —someone else put in.
+
+—You become fragile —said Estanislao, almost without thinking.
+
+Julián nodded.
+
+—Exactly. What happens to a person happens to a country —he said—. Competition is hard, yes. It stings. It shows you where you fall short. But it also forces you to improve.
+If your answer to every discomfort is "poor little me, don't push me," you end up less and less capable over time.
+
+He wrote:
+
+*HEALTHY PROTECTION: preventing abuse.*
+*SICK PROTECTION: preventing effort.*
+
+—And in between —he went on— are those who fill themselves up with power by saying they're protecting us. Trade unions that won't allow new ways of working. Big business owners who demand restrictions so that small competitors can't get a foot in the door. Politicians who raise tariffs "to protect national industry" and the only thing they actually protect are their friendly monopolies.
+
+He turned and looked at Estanislao.
+
+—Has anyone here met a small entrepreneur the system almost swallowed up? —he asked.
+
+Estanislao raised his hand.
+
+—Today —he said—. A guy with a workshop. Wants to hire people, but feels like if he grows a little they'll crush him between taxes, trade unions, and paperwork. They tell him they're protecting the worker, but what they're actually doing is making sure no one new can offer that worker a job.
+
+Some of them nodded. They understood it first-hand: fathers, uncles, people they knew with corner shops, small businesses, workshops.
+
+Julián smiled, sadly.
+
+—There you have it —he said—: the country that calls itself a poor little one in the face of the world, while inside it crushes anyone who genuinely wants to stop being one.
+
+---
+
+Back in the neighbourhood, Ramiro was waiting for him on the corner.
+
+—So? —he asked—. Are you going to keep playing businessman with this Mauro guy, or are you coming to play for real?
+
+Estanislao looked at him for a moment.
+
+—Today they paid me in food containers and explanations —he said—. Tomorrow, if I stick with it, maybe they'll pay me with a payslip. And after that, with something like real experience.
+
+Ramiro clicked his tongue.
+
+—That won't get you out of the neighbourhood —he said—. The black car gets you out. The hustlers get you out. Not the sacrifice of a labourer.
+
+—Maybe it's not just about getting out of the neighbourhood —said Estanislao—. Maybe it's about getting out of the role they expect me to play.
+
+Ramiro looked at him as if he were speaking a foreign language.
+
+—You keep reading Julián's books —he said, with half a smile—. I'll keep counting notes in the meantime.
+
+He rode off, the motorbike roaring.
+
+---
+
+That night, Estanislao wrote in his notebook:
+
+*"Today I saw:*
+*an entrepreneur who wants to grow and the system treats him like a suspect.*
+*trade unions that talk about rights but can't see the people trying to get into the market.*
+*a country that protects itself so much from everything that it ends up protecting itself from the possibility of getting better."*
+
+And he added:
+
+*"Competition scares me.*
+*But what scares me more and more is living somewhere where nobody competes at anything and everyone feels like an eternal poor little one."*
+
+Below, a line that almost made him ashamed to write, but he wrote it anyway:
+
+*"If one day I have something of my own, I want people to work with me because it suits them, not because I feel sorry for them."*
+
+He closed the notebook.
+Tomorrow he was going back to the workshop.
+He didn't know how long it would last, or whether Mauro could hold up against the pressure of the system.
+
+But for the first time, he felt he wasn't choosing only between poverty, crime, or welfare.
+He was feeling his way towards another kind of life: hard, uncertain, but without the costume of the poor little one or the hustler.
+
+And even if the country kept calling itself a victim of the world, Estanislao decided that, at least, he wasn't going to recite it by heart.

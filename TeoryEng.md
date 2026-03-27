@@ -1213,3 +1213,517 @@ The staircase that gave the place its name was no mere decoration: it was a sent
 You had to climb it rung by rung, without a lift, without a miracle, without a "poor little one" that could save you.
 
 And the worst of it — or the best — was that if he made it, he would no longer be able to blame anyone for what he did with his life.
+
+---
+
+## Chapter 6 — *Twisted Merit*
+
+The chalkboard at La Escalera started the evening with a phrase written in crooked capitals, with that black marker Julián wielded like a weapon:
+
+"MERIT IS NOT DEAD.
+THEY KIDNAPPED IT."
+
+Estanislao read it as soon as he walked in, still smelling of frying oil from the soup kitchen where he'd helped that morning. He'd slept badly, four hours at most, through nightmares of chased motorbikes and sirens. The room reeked of damp, his grandmother had coughed all night, and he'd lain awake listening to the old fan that screeched like a sick cricket.
+
+Julián had his back turned, arranging stacks of papers in an order that only he seemed to understand. He had on the same trousers as always, crumpled, and a shirt that looked like it had survived several rounds with the washing machine.
+
+The other kids trickled in, yawning, dropping bags on the floor, fighting over an outlet for their phones. It was seven in the evening, but for many it felt like seven in the morning: they came from work, from the soup kitchen, from helping at home, from picking up younger siblings at school. The exhaustion was uniform, democratic.
+
+—Sit down —said Julián, without turning around—. Today we're going to talk about a dirty word.
+
+He turned, took the marker, and underlined "MERIT" on the chalkboard with a thick stroke that squealed.
+
+—In this country, if you say this word out loud, people look at you funny —he went on, in that measured voice he used when he was about to say something important—. Some accuse you of being a fascist. Others call you naïve. Others laugh, like you've told a tired old joke.
+But everyone uses it when no one's watching. Everyone wants their effort to count. Everyone wants merit to matter... for themselves.
+
+A brief silence fell. Outside, a bus rolled past noisily, its broken exhaust spitting black smoke through the badly closed window.
+
+—What is merit to you? —Julián asked, pointing at the group with the marker.
+
+The answers came out jumbled, overlapping:
+
+—Effort.
+—Earning something because you earned it, not because someone handed it to you.
+—Things going well for you because you did them right.
+—Being better than someone else.
+—Not getting screwed out of what's yours.
+
+Julián made a face, as if he were savouring each answer.
+
+—That last one makes the most noise —he said—. Not because there's anything wrong with competing, but because around here merit got confused with moral superiority. And that's where the problems started. And that's where politics came in and used the word as a club, from one side and the other.
+
+He wrote two columns on the chalkboard, in his messy but readable handwriting:
+
+*MERIT*
+*vs.*
+*THE TWISTED VERSION OF MERIT*
+
+—Healthy merit —he explained, walking between the chairs— is simple: I made an effort, I learned something, I improved, I added value, and that earns fair recognition.
+The twisted version, on the other hand, says: because I have merit, the world owes me everything, even when I'm not doing anything right now. It's merit as an excuse to feel superior, not as an engine to keep improving.
+
+He scratched his head, smudging himself with even more ink.
+
+—And on the other side we have poor-little-one-ism —he added—. Which says: don't ask anything of me, because life has already hit me hard enough. Give me things without asking questions.
+
+He wrote another word below:
+
+*POOR-LITTLE-ONE-ISM*
+
+—Between these two extremes —he went on— we're drowning.
+
+---
+
+While he spoke, Estanislao's phone buzzed in his pocket. He ignored it for a while, but the second buzz made him look.
+
+It was a message from the Negro, the owner of the motorbike, the one who always told him he was "already doing him a favour by giving him work."
+
+*"Hey, Estani, just so you know, for the warehouse thing they brought in my nephew. You know how it is, family first. You keep doing the odd jobs, don't let it get you down. Big hug."*
+
+He felt a stab in his chest.
+
+He'd gone to the warehouse for interviews twice, he'd done the trials, he'd pitched in when others didn't show up. They'd told him that if a permanent position opened up, they'd keep him in mind.
+
+In the end, the position opened up. But merit wasn't enough.
+Blood weighed more.
+
+He put the phone away, jaw tight.
+
+Julián kept talking.
+
+—One more thing about merit —he said—: rewards and punishments aren't linear. We don't live in a clean equation. It's not "you put in effort today, tomorrow things go well."
+Sometimes you put in ten years of effort and the reward comes in year eleven. Sometimes you do everything right and someone else with a better surname, a better face, better contacts, or a cruder kind of cunning walks off with the position.
+
+He wrote on the chalkboard:
+
+*EFFORT → (????) → RESULT*
+
+—That "(????)" —he said, pointing to it— is what makes a lot of people give up. "If it's not fair anyway, why bother?"
+And that's where the theory of the poor little one whispers in your ear: "let it go, it's not for you, poor little one — the system's rigged anyway."
+
+He turned to face the group.
+
+—The trap is twofold:
+
+You get angry at merit because it isn't perfect.
+
+And then they convince you that the best thing is to stop trying altogether.
+
+---
+
+The phone buzzed again. This time it was a voice message from Ramiro.
+
+—Hey, brother, I heard that in the end the warehouse thing went to the Negro's little cousin, some deadbeat who's never worked a day in his life. Poor little one, right? If nobody helps him out, what's he gonna do? Hahaha. What a joke. Better come over to this side — here, the more you hustle, the more you earn. Now that's merit, not that lie about formal work.
+
+Estanislao wanted to laugh, but he couldn't.
+
+Meanwhile, Julián was drawing two paths on the chalkboard:
+
+*PATH 1:*
+*—Do things right.*
+*—Endure the injustice.*
+*—Keep pushing.*
+*—Late results, sometimes invisible.*
+
+*PATH 2:*
+*—Say "it's all unfair."*
+*—Stop trying.*
+*—Become a professional poor little one.*
+*—Quick results: excuses, comfort, zero growth.*
+
+—Most people —said Julián— start on Path 1, but when they run into a serious injustice they switch to Path 2. And the system counts on that.
+Because a resigned poor little one is easier to buy, manipulate, or use than someone who keeps pushing.
+
+He scanned the faces, looking for eyes that weren't empty.
+
+—I'm going to tell you something that isn't easy to hear —he added—: there will be moments when you do everything right and things will still go wrong for you. That doesn't mean effort is useless. It means the world is twisted.
+The right question isn't: "is it worth it if the reward isn't guaranteed?"
+The question is: "who do I become if I stop trying?"
+
+---
+
+At the break, Estanislao went outside to get some air on the pavement. He needed distance.
+
+He leaned against the wall, watching the cars go by. The Negro had cut off, in a dry text message, one of the few clean routes he had.
+
+*"Family first."*
+
+The worst part was that he understood it. And that made him angrier.
+
+A girl from La Escalera came out too. She had her curls tied back and a folder stuffed with highlighted papers.
+
+—You alright? —she asked, lighting a cigarette.
+
+—More or less —he answered—. I just found out that a job they'd been promising me for months went to the boss's nephew. I showed up every time, put in the hours, learned the ropes. But... blood is blood.
+
+She let out a short breath.
+
+—Classic —she said—. I studied like crazy to get into an internship at a company. I had the best grades. I did all the interviews. In the end, the owner's friend's daughter got in. Poor little one, the daughter — if nobody helped her she was going to be disappointed.
+
+She said it with a cold sarcasm.
+
+—What did you do? —asked Estani.
+
+—I cried for two days —she said, without drama—. Then I came here. Julián told me something that annoyed me but stuck with me.
+
+—What?
+
+—"If you use injustice as proof that it's not worth trying, the one who wins is the one who screwed you — twice."
+First he takes the position. Then he takes your energy.
+
+She blew the smoke to one side.
+
+—Merit is twisted, yeah. But if we abandon it, all we're left with is the poor little one and cronyism. Worst combo.
+
+---
+
+Back in the classroom, Julián had wiped the chalkboard clean and written another phrase:
+
+*"DON'T BELIEVE EVERYTHING THEY TELL YOU 'FOR YOUR OWN GOOD'."*
+
+—There is no more effective chain —he said— than a "poor little one, don't bother, it's not for you."
+Sometimes the State tells you that.
+Sometimes your family tells you that.
+Sometimes you tell it to yourself.
+
+He moved to the edge of the room, where Estanislao was sitting.
+
+—Has any of you stopped trying at something because someone told you that you couldn't? —he asked.
+
+Several hands went up. A girl said she'd quit dancing because "nobody from the neighbourhood makes it to a real stage." Another said he'd dropped a course because they told him "that was for people with money." Estanislao thought about how many times he'd heard "be grateful for what you have" whenever he dared to dream a little higher.
+
+Julián listened for a while and then raised his voice.
+
+—Another thing: punishments are twisted too —he said—. Sometimes the one who puts in the effort gets knocked down, and the one who cheats gets the prize.
+And that's when another version of the poor little one's speech shows up: "don't be an idiot, don't kill yourself studying — the hustlers always win anyway."
+
+He wrote:
+
+*CUNNING (CHEATING) = QUICK PRIZE*
+*HONEST (EFFORT) = SLOW / UNCERTAIN PRIZE*
+
+—The way out isn't to become a hustler —he added—. The way out is to become someone who understands the game, but doesn't negotiate who they are.
+There are things you can lose: a job, a scholarship, an opportunity.
+But if you lose your judgment, it's over. They've won you for good.
+
+He went quiet for a moment. When he spoke slowly, his accent from the interior showed more.
+
+—They're going to tell you "poor little one, you didn't make it" —he went on—. Or "see, it wasn't for you."
+That's where everything is decided. If that phrase gets inside you, it breaks you.
+If you hear it as background noise and keep walking, maybe you take longer, maybe you fall and get back up, but you're still the owner of your staircase.
+
+---
+
+Walking out of class, the injustice of the warehouse weighed on him less and more at the same time.
+
+Less, because now he saw it as part of the twisted landscape Julián described.
+More, because he felt clearly the temptation to say: "that's it, it's over, I'm heading straight for Path B, where at least the rules are clear: you risk, you earn."
+
+In the neighbourhood WhatsApp group, Ramiro had shared a new photo: a gleaming motorbike, high-displacement engine, headlights burning like an animal's eyes.
+
+*"Get a load of this, idiots. From poor little one to rider in six months. No degree, no boss, no alarm clock."*
+
+The comments exploded in admiration.
+
+*"Top-tier merit, dog."*
+*"That's progress, not Julián's school lol."*
+*"Stick a siren on it and we'll mistake you for the cops."*
+
+Estanislao felt the tug in his chest. He knew where that motorbike had come from. He knew the risk behind the gleam.
+
+Julián, as if he'd read the chat by telepathy, sent him a short message hours later:
+
+*"When the prizes seem bigger than the effort deserves, there's almost always fine print.*
+*Don't forget to read it. J."*
+
+He replied with just an "ok." He had no more words.
+
+---
+
+That night, in his notebook, he wrote:
+
+*"Today they stole a fair job from me.*
+*Today they almost stole my will to keep trying too.*
+*Julián says the second theft is worse than the first."*
+
+Below, he drew a clumsy picture of a crooked staircase that still went upward.
+
+And added:
+
+*"If I give up because the game is fixed, I become part of the fix."*
+
+He closed the notebook carefully, as if something fragile were inside.
+
+Outside, on the television, another panel of talking heads was debating whether merit was a word belonging to the right, the left, or neither.
+
+Inside, in the small room, Estanislao was beginning to understand that for him merit was not an ideological question.
+It was a simpler and more brutal question:
+
+*"Am I going to let others define what I can be, calling me a poor little one when it suits them and guilty when it doesn't?"*
+
+The answer still had no shape, but for the first time it didn't sound resigned.
+
+---
+
+## Chapter 7 — *The Owners of Pain*
+
+The building had nothing to do with Estanislao's neighbourhood.
+
+He saw it from a block away: a tower of mirrored glass reflecting the clouds as if it wanted to prove that even the sky belonged to it. As he drew closer, the contrast grew more brutal. The pavements were spotless, not a scrap of paper on the ground. The plants in the flower beds looked freshly trimmed by an invisible gardener. Security guards in black suits with earpieces watched everyone who passed as if they were potential threats.
+
+Estanislao felt that his worn-out t-shirt and his sneakers with the soles peeling away were glowing under that office light like evidence of a crime he hadn't committed.
+
+Mirrored glass, a reception desk of cold marble, the smell of expensive perfume and disinfectant. The air conditioning was so powerful that when he walked in, a shiver ran down his spine. The company logo, in polished steel, hung on the main wall like a family crest. The letters gleamed under soft LED lighting, as if elegance could be purchased by the square metre.
+
+*"Grupo Alborada – Building the Future."*
+
+The receptionist had a perfect smile and nails so long that Estanislao wondered how she managed to type. She looked at them with that rehearsed courtesy that never reached her eyes, as if she could tell exactly which neighbourhood they came from just by looking at their faces.
+
+—Look at this place, man —Ramiro whispered, his cap in his hand, turning it nervously between his fingers—. No leaks, no damp here. This is real money, not the scraps we deal with.
+
+Estanislao didn't answer. He was too busy trying not to touch anything, not to leave fingerprints, not to give himself away with every gesture as someone who didn't belong in that world.
+
+They were in the lobby, waiting for a "motivational" talk open to the public to begin. La Escalera had a limited number of invitations; Julián had insisted that some of them go to "see the other world."
+
+—Not to envy it —he had clarified the night before, with that look that always seemed to see further than the room—, but to understand. So you can see where the speeches that get handed down to you actually come from.
+
+Estanislao took it all in with a mix of curiosity and distrust. He felt out of place in his worn sneakers and the borrowed jacket that was a size too big. Beside him, office workers with laptops and neat backpacks leafed through glossy brochures. They smelled of expensive shampoo and machine coffee. None of them looked directly at Estanislao or Ramiro, but everyone seemed aware of their presence, the way you're aware of a stain on a tablecloth.
+
+On the auditorium stage, a banner displayed the guest's face:
+
+*"CONFERENCE: 'THE END OF MERIT AND THE NEW EQUITY'*
+*Speaker: Tomás Alborada (Chief Executive Officer – Grupo Alborada)"*
+
+—This guy inherited all of this from his father —a girl from La Escalera whispered—. He was born with the company already his.
+
+Julián, seated a little further back, was fidgeting with a broken pen. He was poorly dressed as always, but in that setting it looked almost like an act of rebellion.
+
+---
+
+The talk began with dim lights and inspirational music. Tomás Alborada took the stage in an impeccable shirt and a rehearsed smile.
+
+—Friends —he began—, we are living in a new era. The old world of individual merit is in crisis. It's no longer about "the best" taking everything. That is unjust, it is exclusionary, it is undemocratic.
+
+Estanislao felt the air thicken.
+
+Tomás continued:
+
+—For decades, we were sold the story that whoever worked hardest deserved the most. But what about those who can't push as hard? Those who come from difficult circumstances? Those whom life hasn't treated well? We can't keep rewarding only the "winners." Success must be shared.
+
+Soft, polite applause.
+
+Julián crossed his arms. He wasn't smiling.
+
+—At Grupo Alborada —Tomás continued— we are implementing processes where merit is… moderated. Where no one stands out too far above the others. Where no one falls behind, but no one rises so high as to make everyone else feel bad.
+
+Estanislao frowned. It sounded good, but something about the way it was said grated on him.
+
+—And how does someone get promoted here? —a girl in the audience asked.
+
+Tomás smiled.
+
+—By multiple factors —he replied—. Not just performance. Also by alignment with the company's values, by belonging, by shared history. We are one big family.
+
+Julián leaned towards Estanislao and whispered:
+
+—Translation: merit is inconvenient, so we dress it up as "values" and "belonging." That's how the ones from the real family get promoted.
+
+Estanislao swallowed hard. It sounded too much like what happened at the warehouse… but with a necktie.
+
+---
+
+After the talk, they laid out a small cocktail spread in the lobby. Food aplenty, spread across white tablecloths. Cheeses, cold cuts, tiny canapés with strange names.
+
+Ramiro looked at everything like a tourist in a foreign country.
+
+—If we quit messing around with the motorbike, maybe they'd invite us regularly —he joked—. You with that notebook, me with my new bike… we're their diversity quota.
+
+A group of executives was talking nearby, oblivious to their presence.
+
+—The important thing is that the narrative lands —one of them was saying—. People are tired of the merit story. They want reassurance.
+—Exactly —another replied—. You tell them "everyone is worth the same," "no one gets left behind," and then in practice, you put your nephews in the good positions. Poor little things if you don't — what else would they do for work?
+Laughter.
+
+Estanislao felt a prickling of anger. The speech against merit, coming from the mouths of people who had never set foot in a neighbourhood like his, sounded even more obscene.
+
+Julián walked over to the group of invited students.
+
+—Did you learn anything? —he asked, with that characteristic blend of irony and seriousness.
+
+—That merit is bad… unless you're the owner's son —the curly-haired girl shot back.
+
+Julián nodded.
+
+—Exactly. Welcome to poor-little-one-ism from the top —he said—:
+*"Poor little one, my son — how could I not make him a manager? He'll feel bad if he doesn't get promoted."*
+*"Poor little one, my partner — let's not ask him for results, he already did a lot back in the day."*
+
+He adjusted his glasses, which were always slipping.
+
+—Meanwhile, the one who comes from the bottom is told: "don't try so hard, don't be a meritocrat, you sound like a right-winger." And that's that. Everyone stays put. Those at the top, held back by guilt. Those at the bottom, held back by resignation. And the country, stuck in the middle.
+
+His eyes lit up for an instant. You could see the anger in them, but something else too: sadness.
+
+---
+
+On the way back to the neighbourhood, the two worlds collided at once.
+
+Along the way: patrol cars, sirens, people looking towards a familiar corner. An improvised police cordon. Hurried voices.
+
+Ramiro braked the motorbike hard.
+
+—That's the Negro's block —he said—. What happened?
+
+They got as close as they could. There was a car stopped, doors open, windows smashed. A body covered with a white sheet.
+
+A neighbour murmured:
+
+—They say they ran into the police on one of the routes. One of them tried to make a run for it, lost control. Dropped right there.
+
+The name spread through the crowd like an electric current.
+
+It wasn't Ramiro.
+It wasn't Estanislao.
+It was the Negro's cousin — the same one who had gotten into the warehouse thanks to family connections… and who had apparently also wanted to try his luck with "fast progress."
+
+—Poor little one… —someone in the crowd said—. He was a good kid, just wanted to get ahead.
+
+Estanislao felt the phrase explode in his head.
+
+*Poor little one.*
+
+That word again, now stuck to a white sheet on the asphalt.
+
+He looked at Ramiro. His face was set, jaw locked. The new motorbike, a few blocks back, gleamed like a cruel joke.
+
+—Let's go —Ramiro said, his voice flat.
+
+Neither of them spoke on the way back.
+
+---
+
+That night, La Escalera was quieter than usual. Julián didn't give a formal class. He had them sit in a circle.
+
+—Tonight we're not going to talk about theories —he said—. We're going to talk about loyalties.
+
+He settled into an old chair, crossing one leg over the other. His wrinkled trousers fell into absurd folds.
+
+—There are people who will tell you: "be loyal to the neighbourhood," "be loyal to the family," "be loyal to the party."
+All of that can be fine, up to a point.
+But there is one loyalty that, if you betray it, will destroy you: loyalty to what you know is right.
+
+He looked around the circle. His eyes rested for a moment on Estanislao and Ramiro.
+
+—Today a kid died who was playing a very dangerous game —he continued—. And they've already started saying "poor little one, the system pushed him."
+Does the system help? Yes.
+Does the system push? Yes.
+Does that cancel out the decisions? No.
+
+He leaned forward.
+
+—If you believe everyone is a perfect victim of everything, then no one is responsible for anything. And then everything rots.
+
+A few of them looked at him reproachfully.
+
+—Sir, but you also have to understand… —a girl started.
+
+Julián raised his hand.
+
+—Understand, yes. Justify, no —he said—. If everything gets explained with "poor little one," then the ones at the top use "poor little one" for their own benefit too. Poor little one, the businessman who can't compete under fair rules. Poor little one, the politician who has to steal a little because "everyone does it."
+Do you see what I mean?
+
+His words were hard, but he wasn't shouting. There was something cracked in his voice.
+
+—Today, in that glass building, we heard a man say that merit is outdated —he continued—. Up there, merit is inconvenient because it reminds them that there are people who, starting from less, can still go far.
+Down here, merit is inconvenient because it forces you to take responsibility for what we can actually do, even with everything stacked against us.
+
+He went quiet for a moment.
+
+—You know what gets to me? —he asked, almost in a whisper—. Imagining, even for a moment, what this country would be like if we stopped believing we were poor little ones every time something went wrong.
+
+No one dared to interrupt him.
+
+—Think about this —he said—: if everyone who hides behind "poor little one" today — at the top, in the middle, at the bottom — were to stand up one day and say: "enough, from now on I take responsibility," this place would be unrecognisable.
+I'm not talking about perfect heroes. I'm talking about ordinary people doing what they know they have to do, even when the reward isn't immediate, even when the punishment is unjust.
+
+He ran a hand over his face, as if brushing away a memory.
+
+—Sometimes I imagine that —he confessed—. Factories where the one who performs gets promoted, not the relative. Schools where the kids from the neighbourhood are pushed as though they could reach NASA, because they can. Governments where no one gets bought off with crumbs. Streets where a kid like the one under a sheet today… decides not to get in the car.
+
+His eyes grew wet, but he didn't break.
+
+—It would be a tired country, yes —he smiled, weakly—. But a country on its feet. Not poor little ones on their knees.
+
+Silence.
+
+Estanislao felt a knot in his throat. He thought of the Negro's cousin. He thought of the nephew who had gotten into the warehouse by surname. He thought of Tomás Alborada talking about the "end of merit" from his bulletproof building. He thought of Ramiro and his new motorbike, which now seemed like something else entirely.
+
+---
+
+On the way out, he caught up with him at the door.
+
+—Sir —he said—. What if someone pushes and pushes, and the country doesn't change? What if everything stays just as crooked?
+
+Julián looked at him for a moment, with that expression of lucid exhaustion.
+
+—The country isn't a person —he replied—. It's not a man you can convince or cure. It's the sum of millions of small decisions, every single day.
+Maybe you won't see the change straight away. Maybe you'll die without seeing it.
+But between living as a poor little one waiting for someone else to fix everything, or living knowing you did what was yours to do… —he shrugged— …I choose the second.
+
+He put his hands in his pockets.
+
+—Besides —he added, with a half-smile—, if this place ever really gets better, I want to have the right to say: "I didn't just sit there watching Netflix while everything went under."
+
+Estanislao laughed quietly, in spite of everything.
+
+—And if someone falls into Path B for a while? —he asked, almost in a whisper—. Is that it? Is it over?
+
+Julián looked at him more deeply.
+
+—Falling is human —he said—. Setting up camp there is another thing.
+What defines who you are isn't the mud you walked through, but whether you liked it so much you decided to make it your home.
+
+He placed an awkward hand on his shoulder.
+
+—Don't let anyone — the State, a boss, your family, your friends, the black car — tell you that you're a poor little one or that merit is one big lie —he added—.
+Merit is battered, yes. But it's the only thing we have left to build something that doesn't depend on the mood of those in charge.
+
+He turned away, walking towards the darkness of the street.
+
+—One more thing, Estanislao —he said, without turning back—: don't get used to white sheets on the pavement. The day that starts to seem normal to you, we've lost.
+
+---
+
+That night, in the neighbourhood, some people spoke about the Negro's cousin as though he had been a tragic hero.
+
+—Poor little one, he just wanted to help his family.
+—Poor little one, with everything so hard right now.
+—Poor little one, if the State gave more, he wouldn't have had to go out and do that.
+
+Nobody named him for what he had also been: a man who chose a specific risk, knowing exactly what game he was playing.
+
+On television, Tomás Alborada was giving another interview.
+
+—We can't keep pushing the meritocratic story —he said, gravely—. It only generates violence and frustration.
+
+Estanislao turned off the television.
+
+He opened his notebook and wrote:
+
+*"There are two kinds of poor little ones:*
+
+*The one who has almost nothing, and is told he can't have any more.*
+
+*The one who has almost everything, and is told he doesn't need to give any more.*
+
+*Between the two of them, they strangle merit and hold the country back."*
+
+Underneath, in small letters, he added:
+
+*"Julián gets emotional imagining a country with no poor little ones — not from below, not from the top.*
+*I still can't quite picture it. But for the first time, I want to."*
+
+He closed the notebook and, before going to sleep, said a new phrase to himself out loud:
+
+—I'm not a poor little one. I'm in a twisted country, but I'm not a poor little one.
+
+For the first time, the phrase didn't sound like arrogance. It sounded like a starting point.

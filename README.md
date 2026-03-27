@@ -8,7 +8,7 @@ Traduce Español Inglés
 | Archivo / File | Descripción |
 |---|---|
 | [`La Teoría del PobrecitoVersion80.docx`](La%20Teoría%20del%20PobrecitoVersion80.docx) | Original en español |
-| [`TeoryEng.md`](TeoryEng.md) | **Archivo de trabajo principal (Markdown)** — Prólogo, Capítulos 1, 2, 3, 4 y 5 completos en inglés; capítulos siguientes se irán agregando uno por uno |
+| [`TeoryEng.md`](TeoryEng.md) | **Archivo de trabajo principal (Markdown)** — Prólogo, Capítulos 1–7 completos en inglés; capítulos siguientes se irán agregando uno por uno |
 | [`teoryEng.docx`](teoryEng.docx) | Traducción en formato Word — Título, Prólogo y Capítulo 1 en inglés |
 | [`The Theory of the Poor Little One - Prologue and Chapter 1.docx`](The%20Theory%20of%20the%20Poor%20Little%20One%20-%20Prologue%20and%20Chapter%201.docx) | Copia de la traducción inicial (referencia) |
 
@@ -21,4 +21,6 @@ Traduce Español Inglés
 - **Capítulo 3 / Chapter 3:** *El Dueño de los Pobrecitos* → *The Owner of the Poor Little Ones*
 - **Capítulo 4 / Chapter 4:** *Progreso Rápido* → *Fast Progress*
 - **Capítulo 5 / Chapter 5:** *La Escalera* → *La Escalera*
-- **Capítulo 6 y siguientes / Chapter 6 onwards:** pendiente de traducción *(próximamente)*
+- **Capítulo 6 / Chapter 6:** *Mérito Torcido* → *Twisted Merit*
+- **Capítulo 7 / Chapter 7:** *Los Dueños del Dolor* → *The Owners of Pain*
+- **Capítulo 8 y siguientes / Chapter 8 onwards:** pendiente de traducción *(próximamente)*

@@ -752,3 +752,226 @@ And he realised something more unsettling:
 the whole country seemed to be wrestling with the same question, just at a different scale.
 
 San Aurelio, like him, was caught between being a poor little one forever, playing it smart at everyone's expense… or searching for a third path that had no name yet.
+
+---
+
+## Chapter 4 — *Fast Progress*
+
+The first time, it happened almost out of shame.
+
+It was one of those humid December nights where the air hung heavy as a wet blanket. The smell of uncollected garbage mingled with the distant scent of asado — some neighborhood grill celebrating something. Mosquitoes buzzed around the broken streetlights, and somewhere a dog barked without conviction, as if clocking in for a shift.
+
+—You don't have to do anything weird, man —Ramiro told him, hands stuffed into his sweatpants pockets—. You just carry a package from one place to another. Like when you deliver empanadas. Nobody's going to ask for your college degree for that.
+
+They were at their usual corner — the one with the closed bakery that had never actually opened, the one with the "COMING SOON" sign that had been there for as long as Estanislao could remember. The black car was still there, but this time the rear door was slightly open. A hand resting on the roof, a lit cigarette with an ember that glowed like a red eye, two silhouettes inside.
+
+Estanislao pressed the helmet against his body. The dented plastic smelled of old sweat and gasoline. He thought about his grandmother sleeping, about his mother staring blankly at the TV, about the nearly empty fridge making that sick-engine sound.
+
+—What if they stop me? —he asked. His voice came out higher than he would have liked.
+
+Ramiro smiled with borrowed calm — that calm he'd picked up from the guys who came and went from the black car.
+
+—They won't stop you. And if they do, you say you're a delivery guy. That you run errands. That you don't know anything. You've got an innocent face, Estani. Use it.
+
+The phrase stung. An innocent face. A poor little one even when it came to crime, he thought. He'd always been the "quiet kid" of the neighborhood, the one who never got into trouble, the one who helped old ladies cross the street. And now that was good for this.
+
+—Think of it this way —Ramiro added, lowering his voice—: if you've got an innocent face, you're invisible to the cops. They're looking for the tatted guy, the shaved-head guy, the one who looks the part. You're just the delivery kid. Nobody suspects a poor little one on a motorbike.
+
+—It's just one run, to see how it goes —Ramiro insisted—. Nobody gets rich working under the table for El Negro. Look at your grandma, look at your mom. Breaking their backs their whole lives and they're still counting coins. One little trip doesn't make you a dealer. It makes you a little less of a poor little one.
+
+A little less of a poor little one.
+
+He got on the motorbike without having fully made up his mind. Sometimes the decision was just that: getting on, not saying no.
+
+---
+
+The guy from the black car was younger than he'd imagined. Expensive sneakers, plain tee, understated gold chain, neat beard. Nothing like a movie villain.
+
+—Estanislao, right? —he asked, looking him over the way you'd size up a product.
+
+—Yeah.
+
+—I hear you're reliable. That's worth more than anything else —the guy said—. Nobody's asking for your résumé here. Just do what you're told and don't try to be a hero.
+
+He handed him a plain grey bag with a supermarket logo.
+
+—This goes to the address I'm sending you on WhatsApp. They'll be expecting you. You drop it off, you get paid. You didn't see anything, you don't know anything. Your end of it is just logistics.
+
+Logistics. The infinite capacity of language to put a shine on things.
+
+—What if something goes wrong? —Estanislao ventured.
+
+The guy was quiet for a second. He looked him in the eyes.
+
+—If something goes wrong, you won't have time to worry about it —he answered, almost pleasantly.
+
+Then he winked, as if it were a joke, and handed him a couple of bills upfront.
+
+—Just so you see that effort does pay off here, kid. Not like those regular gigs.
+
+Effort. Pay. Progress. The same old words, with brand new contents.
+
+---
+
+The city at night felt like a different place. The streets that by day were full of buses, vendors, and hurrying office workers were now a chessboard of light and shadow.
+
+As he rode, Estanislao tried to keep his mind on the road. The motorbike vibrated, the grey bag bouncing gently between his knees.
+
+He thought about the President saying that "effort guarantees nothing."
+He thought about the minister saying that demanding things of people was cruelty.
+
+And, without meaning to, he thought that if they were right, then this job made its own kind of sense:
+If honest sacrifice doesn't pay, crooked sacrifice starts to look tempting.
+
+The address was in a neighborhood of low houses, tidier than his own. Painted iron gates, intact cars, sidewalks without potholes. Working middle class, he thought.
+
+He rang the bell. A guy came out in sweatpants and a sports shirt, smelling of expensive cologne mixed with deodorant.
+
+—You the one on the bike? —he asked, looking at the bag first, then at the face.
+
+—Yeah.
+
+The guy nodded, took the bag naturally, as if it were groceries from the supermarket. He placed some bills in his hand, counted out.
+
+—All good, man. Thanks. God bless you.
+
+God bless you. Another phrase that sounded strange in that context.
+
+As he rode away, Estanislao realized something that didn't surprise him but hit him all the same:
+Drugs weren't just "a poor people thing." The guy with the expensive shirt and the tidy house was part of the same circuit.
+
+The theory of the poor little one didn't stop at the neighborhood. It lived just as much in the middle class — people who felt victimized by stress, by their bosses, by the system… and allowed themselves their own shortcuts.
+
+---
+
+He returned to the starting point with his heart racing, even though the run had been short and uneventful.
+
+The guy from the black car was waiting with the same lit cigarette.
+
+Estanislao handed over the money.
+
+—You came through. Good —he said—. If you want, there's more where that came from. Once a week, twice, as often as you can handle it. In a few months, you buy your own bike. You stop being the kid who borrows things.
+
+He put his hand on his shoulder.
+
+—I'll put it straight: here, merit actually gets rewarded. The more you risk, the more you earn. A lot fairer than the "normal" country, right?
+
+The word merit sounded dirty in that sentence, but he couldn't deny there was a logic to it.
+
+Ramiro congratulated him with a hard slap on the back.
+
+—See? First run, cash in hand, nobody dead, nobody arrested. Told you. Express progress.
+
+Estanislao pocketed the bills. They felt heavy.
+
+---
+
+The next day, with part of that money, he bought new sneakers for his grandmother and fixed the gas leak in the kitchen. He could feel, almost physically, the air in the house change.
+
+—And where did all this come from, sweetheart? —his mother asked, somewhere between grateful and suspicious.
+
+—New gigs —he answered—. They're paying me better. Turns out I'm good for more than just running around.
+
+It wasn't entirely a lie. It just needed a footnote.
+
+His grandmother hugged him tight.
+
+—God doesn't forget the poor little ones —she said, in tears—. Late, but He provides.
+
+The words went through him like a blade.
+God, the poor little ones, the help, the money that came from a dark place. All of it mixed together in the same moral stew.
+
+---
+
+That afternoon, while waiting for another message he couldn't bring himself to want but couldn't bring himself to refuse either, his phone rang from a different direction.
+
+It was an unknown number. A landline.
+
+—Estanislao? —asked a clear female voice.
+
+—Speaking.
+
+—I'm calling from the adult night school in the next neighborhood over. You signed up about a year ago to finish high school — do you remember? —said the voice—. You were on the waiting list. A spot has just opened up to complete your last two years in two years. Evening shift. If you're still interested, you can come to the information session.
+
+He went quiet.
+
+He had gone to that initial session so long ago that he'd nearly forgotten signing up. At the time, he'd been convinced they'd never call. Just another form lost in some random office.
+
+—Are you still there? —the voice pressed.
+
+—Yes. Yes, I'm interested —he answered, surprising himself.
+
+—Perfect. We'll expect you Monday at seven. Bring your ID and a photocopy. And some drive —the woman added, with a short laugh.
+
+She hung up. He stared at the phone as if it were something alien.
+
+The message from the black car arrived two hours later:
+
+*"If you want to repeat yesterday, there's a new route for you tomorrow. We're paying 20% more. Confirm with an 'ok'."*
+
+All at once, he had two invitations on the table.
+
+One to Path B: fast money, risk, power, a kind of crooked merit.
+Another to Path C: night classes, exhaustion, lost sleep, a diploma that who knows if it would ever do him any good.
+
+He sat on the bed with the notebook in his hand.
+
+He wrote:
+
+*"Path B calls again the moment you've tried it once.*
+*Path C calls late, with a timid voice, as if apologizing."*
+
+Below, he drew two columns:
+
+*B — Drugs, money, own bike, fear.*
+*C — Study, exhaustion, uncertain future.*
+
+The fundamental difference, he thought, was one nobody ever named:
+
+On Path B, if it went wrong, he wouldn't be the only one to fall. Other people would fall too.
+On Path C, if it went wrong, he was the only one who lost.
+
+He sighed.
+
+Ramiro sent a voice message almost at the same moment:
+
+—Come on, Estani. Don't go all philosophical on me now. Strike while the iron's hot. Poor little one today, making moves tomorrow. We'll figure it out.
+
+---
+
+That night he went out for a walk with no destination in mind. He needed air.
+
+He passed along the main avenue. Between signs for impossible credit terms and cheap clothing stores, a different poster caught his eye:
+
+*"FREE TALK:*
+*'FROM THE NEIGHBORHOOD TO THE WORLD'*
+*Stories from young people who studied, started something, or left.*
+*Organized by: Centro Cultural La Escalera."*
+
+Below it, a black-and-white photo of three young people at an airport, smiling with backpacks.
+
+*"La Escalera,"* he thought. Good name.
+
+He walked up to the door. Inside he could hear voices, laughter, a different kind of energy.
+
+He hesitated for a second. He could go in, sit at the back, listen to stories about people who had chosen Path C.
+Or he could go back to the neighborhood, reply "ok" to the message, and keep climbing the rungs of a faster ladder — one that tilted toward the abyss.
+
+He slipped his phone into his pocket. Put his hand on the door handle.
+
+He didn't know yet what he was going to choose.
+But, for the first time, all three paths lay clearly before him:
+
+A: grateful poor little one.
+
+B: dangerous player.
+
+C: tired protagonist, but his own man.
+
+And something inside him — a small voice that didn't come from the TV, or from the ministers, or from the black car, or even from his grandmother — whispered:
+
+*"If this country fills up with A's and B's… who's going to pull it out of the hole?"*
+
+That question, more than any other, was the one that pushed him through the door of the cultural center.
+
+The door closed behind him with a soft click — but a different one from all the others he'd heard that day.

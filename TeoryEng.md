@@ -2468,3 +2468,266 @@ But he did know that if he turned back just so people could see him well-rested,
 And he had learned, from Julián and from Mauro, that there is a lie more dangerous than any told by the State or by politicians:
 
 the one you tell yourself to avoid making the effort.
+
+---
+
+## Chapter 11 – *Poor Little Giants*
+
+The boxes with the blue logo stopped arriving from one day to the next.
+
+It was an autumn Wednesday, one of those grey days when the sky looks like a dirty sheet and the wind carries the smell of burning from the factories on the other side of the highway. Estanislao arrived at the workshop at half past seven, as always, with the cold creeping in through the holes in his jacket and a café con leche sitting in his stomach from Norma's bar — it had cost him nearly a quarter of his day's pay.
+
+Until yesterday, the workshop had looked like a well-ordered anthill: Mauro and Estanislao moving between parts, lists, measurements, deadlines. The whir of the angle grinder, the crackling of the welder, the smell of hot metal mixing with stale coffee. Today, the space where the Industrias Ríos orders had been stacked was empty, as if someone had erased a piece of the landscape with a giant rubber. The metal shelving, once loaded with boxes bearing the bright blue logo, now showed only dust and a few forgotten tools.
+
+Mauro was sitting on the worn wooden workbench, phone in hand, staring at nothing. He was wearing the same T-shirt as the day before — Estanislao recognised it by the grease stain near the collar — and dark circles under his eyes, as if he hadn't slept.
+
+—What happened? —Estanislao asked, even though he already had a feeling he knew.
+
+Mauro didn't look up.
+
+—Maybe it's a delay, —he said, without much conviction, more to himself than to the kid—. Or they're restructuring the production line. These big companies are like that — they take their time letting you know. Maybe tomorrow two trucks show up at once and we're run off our feet.
+
+But his voice sounded hollow, like an empty tin.
+
+Estanislao sorted tools just to have something to do with his hands. The wrench, the screwdrivers, the pliers. Everything in its place, as if tidying the space might tidy up what was happening.
+
+—Did you call the contact? —he asked.
+
+Mauro dragged his hand across his face, leaving a smear of grease on his forehead without noticing.
+
+—I sent him three messages, —he replied—. He read them. Didn't reply. Then I called him and he sent me to voicemail.
+
+In the language of business, that was already an answer. The silence that speaks louder than words.
+
+---
+
+The news came through the TV at the corner bar — Cacho's place — the one with nicotine-yellowed walls and an old television hanging from a rusty bracket.
+
+While Mauro and Estani ate a cheap milanesa sandwich — the bread stale, the meat wafer-thin, but hunger doesn't discriminate — the news bulletin cut across the programming to show the owner of Industrias Ríos facing the cameras: grave expression, immaculate dark suit, surrounded by workers in the company tabards. Behind him, a factory floor with idle machines and the flags of San Aurelio.
+
+The chyron read:
+
+*"NATIONAL INDUSTRY IN CRISIS:*
+*EMBLEMATIC COMPANY ON THE BRINK OF CLOSURE."*
+
+—Poor little ones… —the waiter murmured, setting down the glasses—. Working their whole lives and now they're being brought down.
+
+The owner of Ríos spoke in a practised voice:
+
+—We are going through an unsustainable situation, —he was saying—. The irresponsible opening of the economy is destroying us. We cannot compete with cheap imported goods. If the State doesn't protect us, we're not the only ones who lose: the country loses, our families lose, our workers lose.
+
+Beside him, several employees nodded along, some with tears in their eyes.
+
+—We want to keep betting on San Aurelio, —he continued—. But this is no way to operate. They're pushing us to the edge.
+
+Footage of the plant: idle machines, flags, a strike announced.
+
+Mauro set his fork down halfway to his mouth.
+
+—What sons of… —he whispered.
+
+—The imports are killing them? —Estanislao repeated, echoing what he'd just heard.
+
+Mauro shook his head.
+
+—Imports have been around for years, —he said—. What's killing them is something else.
+
+He dragged his hand across his face.
+
+—Remember this, —he went on—: we only just got in as suppliers, the smallest of the small, right at the end of the chain. They've been operating for decades with perks, soft loans, State protection, subsidies.
+They're not going under because the world suddenly turned nasty. They're 'going under' —he made air quotes— because closing is better business than restructuring.
+
+Estanislao frowned.
+
+—What do you mean, closing is better business?
+
+Mauro pointed at the screen.
+
+—Now they'll go after State bailouts, compensation packages, early retirement schemes, tax breaks, —he listed them off—. Maybe they'll sell the brand to a multinational, take the money abroad, and leave here with the shutters down and the workers crying at the gate.
+They're poor little ones for the cameras. On the balance sheets, not so much.
+
+---
+
+Back at the workshop, the silence weighed heavily.
+
+Mauro opened the old laptop and checked his email. A message from Ríos had come in an hour ago.
+
+*"Due to force majeure circumstances linked to the macroeconomic context, we find ourselves obliged to suspend indefinitely the contract with all our providers of smaller scale.*
+*We thank you for the commitment demonstrated and hope to resume the relationship in a more favourable future scenario."*
+
+—'Force majeure circumstances'… —Mauro repeated, bitterly—. Translation: 'it suits us to drop the small ones first.'
+And 'providers of smaller scale' — that's us. Poor little us.
+
+He snapped the laptop shut.
+
+—And now? —Estanislao asked.
+
+Mauro didn't answer right away. He stared at the space where the boxes had been.
+
+—Nothing for now, —he finally said—. Today, nothing. Tomorrow, thinking.
+
+---
+
+In the neighbourhood, the news about Ríos spread fast.
+
+—Did you hear? —people were saying at the corner shop—. Poor little things, those factory workers — they're going to be out on the street.
+
+In the kitchen, Estanislao's mother was remarking while chopping vegetables:
+
+—That's why I keep saying, don't kill yourself over things like that, —she told a neighbour—. Here today, gone tomorrow. Better to have something solid from the State. The ones who depend on companies always end up the same: poor little ones.
+
+When Estanislao came in, he caught the tail end of it:
+
+—My boy spends all day in some workshop, dead on his feet. And what for? Some big company decides to close and that's that. Poor little one, him too.
+
+He took a deep breath.
+
+—Mum, I don't work for Ríos, —he said—. I work with Mauro. And yeah, right now we're in the lurch, but that doesn't mean it was all for nothing.
+
+She shrugged.
+
+—Can't you see it's all the same? —she replied—. One day the people at the top wake up on the wrong side of the bed and everything comes crashing down. I'd rather depend on something that doesn't have to answer for itself every month.
+
+Something that doesn't have to answer for itself: the State, the welfare programmes, the benefit cards. Which, in her mind, couldn't go bankrupt because it had no balance sheet.
+
+---
+
+That evening, at La Escalera, the subject was inevitable.
+
+Julián had written on the chalkboard in enormous letters:
+
+*"PROFITABLE BANKRUPTCY*
+*vs*
+*UNPROFITABLE BANKRUPTCY"*
+
+—We're not going to get fully into this today, —he said—. I just want you to start seeing that not every bankruptcy is what it looks like.
+
+He pointed at the heading.
+
+—There are people who truly go bankrupt and lose everything: the corner-store owner, the corner-shop owner, the small workshop owner.
+And there are giants who 'go bankrupt' to reinvent themselves with fewer obligations —money offshore, debts left behind— while everyone treats them like misunderstood poor-little-one saviours.
+
+He looked at Estanislao.
+
+—You were right in the middle of it today, weren't you? —he asked.
+
+Estani nodded.
+
+—Ríos cancelled our contract, —he said—. They're blaming it on the opening up of the economy. On TV they were practically in tears.
+
+Julián pressed his lips together.
+
+—Of course, —he said—. If they admitted that for years they lived off protection, privileges, and zero competition, the myth of the heroic entrepreneur would collapse. It's easier to say: 'poor little us, the cruel world forced our hand.'
+
+He ran the marker slowly over the word 'poor little ones.'
+
+—Next week we'll go into it properly, —he announced—. Today I just want to leave you with one idea:
+the ones who truly can't cope are the ones who have nobody to blame when things go wrong.
+The rest, more often than not, are just running the numbers.
+
+---
+
+Later, at the workshop, Mauro was alone when Estanislao arrived.
+
+On the bench sat a blank sheet of paper, a cold mate, and a ballpoint pen he'd chewed out of shape.
+
+—Remember when I told you this could change our month, not the whole country? —he said, without looking up.
+
+—Yeah.
+
+—Well, the month's gone to hell, —he summed up.
+
+Silence.
+
+—Are you going to close? —Estani asked.
+
+Mauro scratched the back of his neck.
+
+—I don't know, —he replied—. It would be the logical thing: lock up, sell what you can, say 'poor little national entrepreneur crushed by the system' and be done with it. Maybe I'd even end up on TV one day, crying out the front.
+
+He laughed, but there was no humour in it.
+
+—Sounds tempting, —he admitted—. It's easier than sitting down to figure out what the hell to reinvent yourself into in a country where every new direction you try runs into a thousand obstacles.
+
+He was quiet for a moment.
+
+—But I'm stubborn, —he added—. And on top of that, I've got kids watching me.
+
+He looked up at Estanislao.
+
+—You've already seen too many times how they play the poor-little-one card, —he went on—. I don't want to be another example of that.
+So here's what we're going to do: we give ourselves a week to think about what else we can do with what we've got here. Machines, know-how, contacts, whatever.
+If in a week I can't come up with anything that isn't just crying to the State, then we'll talk about closing.
+
+He tapped his temple.
+
+—I'm not promising it'll work out, —he said—. What I'm promising is that I'm not going to sell myself cheap in exchange for pity.
+
+---
+
+That week, the workshop became a laboratory of ideas.
+
+Mauro filled improvised boards with diagrams. New products, different clients, services for neighbours, custom parts for small workshops that had no machinery of their own.
+
+Estanislao contributed what he could.
+
+—There are a lot of people in the neighbourhood who fix things by hand but have no way to do precise metal cutting, —he remarked one day—. Maybe we could offer cuts to order.
+—Or make simple structures for small businesses, —he added another day—. Workbench tops, shelving units, things they're paying a fortune for right now.
+
+Nothing was brilliant or an instant fix. But they were paths.
+
+Mauro, who wasn't one for showing emotions, sat one afternoon staring at a rough sketch on the bench.
+
+—You know what kills me? —he said—. If I sit around waiting for the State to save me or for Ríos to change its mind, I'm definitely going under.
+If I try to reinvent myself, maybe I do too. But at least, if I fail, I'll know I didn't do it playing the role of model poor little one.
+
+He dragged his hand across his face, streaked with dust.
+
+—There are bankruptcies that pay, —he murmured—. Ours, if it comes to that, I don't want it to be one of those.
+
+---
+
+At home, the conversation moved to a different beat.
+
+—So? What are you going to do now they've left you in the lurch? —his mother asked—. Poor little one, I told you not to wear yourself out like that. Look — now no Ríos, nothing.
+
+His grandmother nodded.
+
+—Maybe it's a sign from God, —she added—. To ease off a little.
+
+Estanislao took a deep breath.
+
+—Or maybe it's a sign that you need to think more and complain less, —he said carefully—. Mauro is figuring out how to reinvent himself. That's what I want to learn — not how to cry in front of a camera.
+
+His mother frowned.
+
+—Don't be unfair, —she replied—. There are people who have no options.
+
+—That's true, —he said—. But we, at least right now, have a workshop, machines, a bit of brains and our health. As long as we have that, I don't want us declaring ourselves 'out of options' so quickly.
+
+He wasn't sure he'd convinced them. But he was sure he wasn't going to back down just because the world had got hard again.
+
+---
+
+That night, in the notebook, he wrote:
+
+*Ríos plays the poor little one on TV while dropping the smallest suppliers first.*
+*Mauro could do the same — and instead sits alone in the workshop thinking of what else he can do.*
+
+*These are two ways of standing up to the same blow:*
+
+*"The world owes me something — I'll collect in pity and advantages."*
+*"The world hits me — I see what I can do anyway."*
+
+Below that, he added, almost as a reminder to himself:
+
+*Don't want to be the one who applauds the poor little giants while they trample the ones who are genuinely trying to grow.*
+
+He closed the notebook.
+
+He still didn't know what would come of that reinvention.
+Maybe nothing. Maybe something small. Maybe the next attempt would fail too.
+
+But for the first time, he began to suspect that the real wealth of a country didn't lie only in the big companies that appeared on TV, but in the anonymous Mauros who refused to use the poor-little-one discourse, even when they had every excuse to.
+
+And that if there was a place worth exhausting yourself for, it was there.

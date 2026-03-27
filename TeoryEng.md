@@ -3118,3 +3118,93 @@ Mauro was still thinking in the workshop. Julián was surely already building a 
 And Estanislao, in the middle of all of it, began to see that the Theory of the Poor Little One wasn't an invention from his neighbourhood alone. It was a language shared by people with welfare cards and people with black credit cards. A language in which everyone gave themselves permission to change nothing, always with good reasons.
 
 And if there was one thing reading, work, and La Escalera had taught him, it was that no country ever rises speaking that language for ever.
+
+---
+
+## Chapter 14 – *Julián's Paper (Part I): The Poor Little Ones at the Top*
+
+*(Note from Estanislao: This is an excerpt from the paper Julián was working on. I found it among his belongings after he died. It was underlined and full of margin notes. I'm including it here because it says things I couldn't have put into words myself, but that I felt every time I saw how the system worked.)*
+
+---
+
+**"On the Theory of the Poor Little One in the Upper Classes: When the Victim Has Power"**
+By Julián Menéndez
+
+*Fragment from the draft (May, one year before his death)*
+
+---
+
+When we talk about the "poor little one" as a psychosocial phenomenon, we tend to automatically associate it with material poverty. That is a dangerous conceptual error.
+
+The poor-little-one mentality is not exclusive to those who lack resources. It is, above all, a strategy for evading responsibility that can manifest at any socioeconomic level. And when it appears in the upper classes, it becomes particularly destructive, because it comes coupled with economic and political power.
+
+The poor little one with resources doesn't cry over food. He cries over privileges.
+
+Let me be clear: I am not denying that genuine economic crises exist, nor that some business sectors face real difficulties. What I am pointing out is the performative use of victimisation as a tool to avoid competition, reject accountability, and extract public resources.
+
+**Case 1: The "bankrupt" entrepreneur who never goes bankrupt**
+
+Over the last four decades in San Aurelio, I have documented more than 200 cases of large companies that declared themselves "on the brink of collapse" at press conferences. The managers wept — literally — in front of the cameras. "Poor little national industry," they said. "The State is abandoning us," they repeated.
+
+In 87% of those cases, what followed was not a bankruptcy, but a favourable restructuring:
+
+- Cuts to frontline staff (the "poor little ones at the bottom" who truly lose everything)
+- Purchase of assets at rock-bottom prices by connected investment groups
+- State subsidies presented as a "solidarity rescue"
+- New contracts with conditions more favourable to the owners
+
+The result: the same family names continue to control the same sectors. They simply changed the corporate structure and slashed their labour costs.
+
+What is this, if not a corporate version of the theory of the poor little one?
+
+"It's not my fault" (even though they have been making strategic decisions for years). "The system is out to get me" (even though they hold private meetings with government officials). "I need help to survive" (even though their smaller competitors do actually go under — with no press conferences and no bailouts).
+
+**Case 2: Protection dressed up as social justice**
+
+I have attended dozens of meetings of industry associations. What I hear is revealing.
+
+When anyone proposes opening the market to new competition, the response is never "let's improve so we can compete." The response is: "This is cruel. It will destroy SMEs. Poor little local industry — it simply can't compete with international prices."
+
+Notice the rhetorical sleight of hand: the large business owner presents himself as the defender of the small one, in order to spare them both from having to compete. But when that same business owner negotiates with his small suppliers (like Mauro), he squeezes them without mercy — delays payments, unilaterally changes conditions.
+
+The "protection" he demands from the State is for himself. The small players only serve him as rhetorical cover.
+
+**Case 3: The heir who sees himself as a self-made man**
+
+I know several. I went to school with them, travelled with their families, had dinner at their homes.
+
+The narrative is always the same: "I fight for it too, you know? Don't think it's easy just because my family has money." "Poor little me — you get criticised for being born where you were born." "If I fail, it'll be because this country is a mess, not because I didn't try hard enough."
+
+And sure enough, when they fail, there is always a safety net to cushion the fall: a relative who invests, a position at another company in the group, an "opportunity" abroad arranged through contacts.
+
+They don't deny the initial advantage, but they take offence if the final outcome is questioned. They want the credit of merit without accepting the weight of privilege.
+
+**Why Is It Dangerous?**
+
+Because when those who hold power speak of themselves as victims, the consequences are structural.
+
+- **They capture public resources** with the discourse of "we're in crisis, we need help" — but those resources never reach the workers or the suppliers. They stay at the top.
+- **They block reforms** with the argument that "you'll destroy us," when what they really fear is losing guaranteed profitability without effort.
+- **They export the risk downward.** They restructure, "downsize through flexibility," outsource. The only ones who truly go under are those who have no microphone to cry into in public.
+- **They normalise the double standard.** They demand competition and merit from everyone else, but protection and compassion for themselves.
+
+The "poor little one" upper class doesn't ask for food. It asks to have its profit guaranteed without risk.
+
+And when the system refuses, it doesn't say "I'll get better." It says "this is unjust, the country is broken, I'm leaving."
+
+They leave. But they take the contacts, the capital, the opportunities with them. They leave the problem behind and present themselves as victims of a country that "wasn't able to hold onto them."
+
+**Preliminary Conclusion**
+
+The theory of the poor little one in the upper classes is doubly dangerous because:
+
+- It has a megaphone (media, access to government officials, influence).
+- It has immediate material consequences for thousands of people.
+
+When a neighbourhood worker victimises himself, he stays put and harms only himself. When a powerful business owner victimises himself, he paralyses entire sectors and benefits from the State while claiming the State abandoned him.
+
+I am not asking that we hold those with resources in contempt. I am asking that we name the hypocrisy for what it is.
+
+Because as long as we keep allowing the powerful to play the role of victims, we will never be able to build a system in which risk, merit, and reward are distributed with even a minimum of honesty.
+
+*(End of excerpt. In the margin, in Julián's handwriting: "This will bother them. Publish it anyway.")*

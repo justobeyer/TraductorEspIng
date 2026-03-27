@@ -2228,3 +2228,243 @@ But for the first time, he felt he wasn't choosing only between poverty, crime, 
 He was feeling his way towards another kind of life: hard, uncertain, but without the costume of the poor little one or the hustler.
 
 And even if the country kept calling itself a victim of the world, Estanislao decided that, at least, he wasn't going to recite it by heart.
+
+---
+
+## Chapter 10 — *The Exhaustion of Not Being a Poor Little One*
+
+The workshop smelled different that March morning.
+
+Summer was still holding on, and the air came in hot through the high windows of the workshop shed, mixed with the sound of trucks rolling down the avenue and the shriek of cicadas hiding in the weeds of the vacant lot next door. On the old radio Mauro kept hanging from a nail, a radio announcer was talking about inflation and austerity cuts, but the volume was so low that the words were swallowed by the hum of the industrial fan.
+
+Before, the smell had been sawdust, metal, and coffee left too long on the stove burner that Mauro never turned off. Now, on top of all that, there was a new scent: fresh paint applied neatly over a stack of thick cardboard boxes, each one bearing the same bright blue logo.
+
+*"INDUSTRIAS RÍOS – MADE IN SAN AURELIO."*
+
+Estanislao had gotten up early, while the neighbourhood was still asleep and only the stray dogs rummaging through the bin bags on the pavement were making any noise. He had walked the twenty blocks to the workshop because the neighbour's motorbike had a flat, and every step had made him think about how strange this was: having somewhere to go, something to do, someone waiting for him. He remembered when his only horizon had been the soup kitchen, the welfare queue, Yoli's corner shop to see if there were any odd jobs going.
+
+Mauro was already there, his T-shirt stained with old grease, eyes fixed on the boxes the way you look at a newborn you're not sure is going to make it. He had an unlit cigarette in his mouth — he'd quit smoking three months ago, but he still chewed on the filters when he was nervous — and his hands were still at his sides, which was unusual for him.
+
+The workshop shed was quiet. The machines hadn't started up yet, and the sunlight came through the skylights in the roof, throwing golden rectangles onto the grey cement floor. It smelled of machine oil, the previous day's welding, and that eternal coffee Mauro brewed in a dented moka pot.
+
+—We got it —he said at last, without overplaying it, but with a strange light in his eyes that Estanislao had rarely seen—. Ríos gave us a shot at making spare parts for them. Small pieces, short production runs. If it goes well, there's more work, and maybe we can even hire someone. If it goes wrong... well, we go back to the usual repairs and the odd jobs around the neighbourhood.
+
+Estanislao ran his hand over one of the boxes. The paint was dry but still held a wet-looking sheen, as if it too were nervous. He felt the texture of the thick cardboard, the weight of what it represented.
+
+—Ríos? —he asked—. Aren't they the ones who go on TV saying the country is strangling them?
+
+Mauro laughed under his breath.
+
+—The very same —he said—. A big company, one of the protected ones. Tariffs on the competition, ironclad collective bargaining agreements, tax breaks. Poor little things — the world treats them so badly.
+
+He shrugged.
+
+—But right now, they're the only ones who want to buy anything from me —he added—. So I'm not going to get precious about it. This is an opportunity and a test: if we deliver, we go from invisible little workshop to small supplier. It doesn't change the country. It changes our month.
+
+He clapped Estani on the back.
+
+—That said, kid. Brace yourself —he said—. We're going to work like animals. No margin for error. The protected ones up top only accept products from the ones down below if they're perfect. Mess up once, and there's no second chance.
+
+---
+
+The days that followed were a mixture of excitement and exhaustion.
+
+Mauro and Estanislao arrived early, before the bakery on the corner had even opened, and left when the street was already empty.
+
+Measure, cut, polish, test the fittings, repeat. Each piece had to be identical to the last.
+These weren't the creative "extravagances" like the strange furniture hanging from the ceiling. These were cogs in a larger machine.
+
+—You realise? —Mauro would say, adjusting a machine—. These pieces are going to end up in something sold all over the country. Maybe equipment used out in the countryside, in a factory, in a hospital.
+We're still poor and small, but our things are starting to travel without us.
+
+On Mauro's face you could see the exhaustion, but also a strange kind of pride: the pride of belonging, even in some lost footnote, to a larger chain.
+
+---
+
+For Estanislao, the price was paid at night.
+
+He arrived at La Escalera with his hands still vibrating from the noise of the machines, his shoulders stiff, his head full of measurements and deadlines.
+
+He would sit down, open his notebook, and sometimes stare at a blank page for five minutes without a single word coming to him.
+
+Julián would watch him from the back of the room.
+
+—You look like a used spare part —he told him one evening, in passing.
+
+—I'm done for —Estani admitted—. I feel like I've got sawdust for a brain.
+
+—Congratulations —Julián replied—. That's called being alive. Now learn not to use tiredness as an excuse to abandon what matters to you.
+
+No pat on the back. No longer speech. He kept walking.
+
+That night, Estanislao read three lines of his book and fell asleep with the page pressed against his face.
+
+---
+
+At home, things grew tense.
+
+His mother watched him leave earlier and earlier and come back later and later, his clothes dirty and his face worn out.
+
+—You can't keep going like this, love —she told him one night, as she served dinner—. You're thin, you've got dark circles, you barely say a word. What for? So some guy you barely know can get rich off your hard work?
+
+His grandmother, from the far end of the table, nodded along.
+
+—Your mother's right —she added—. You're worn to dust. What are you getting out of all this? At least before, I'd see you around the house. Now I don't even have that.
+
+Estanislao took a deep breath.
+
+—I'm getting experience —he said—. I'm learning something I didn't know how to do. Maybe, if this goes well, Mauro can put me on the books. Or maybe there's a different kind of future — one that's not just odd jobs or… —he stopped, thinking of the black car's routes—. …other things.
+
+His mother clicked her tongue.
+
+—Poor little one, look at you, swallowing that line —she said—. Every boss promises a future. Then, when they get tired of you, they let you go and that's that. And you're left with nothing — no strength, no anything.
+
+That word again. Poor little one.
+
+—I'm not a poor little one, Mum —he said again, tired but keeping his voice level—. I'm tired because I'm working. It's different.
+
+His grandmother stepped in, gentle but insistent:
+
+—You're a good boy, Estanislaito —she said—. I don't want them exploiting you. I don't want you getting sick for people who won't be there to look after you when you're not well. Better something easy, even if it's less. Life goes by fast.
+
+*"Better something easy."*
+*"Something easy"* meant, in her logic, going back to the soup kitchen, to scattered odd jobs, to the welfare cards, to favours.
+
+A place where nobody demanded too much of you, but nobody expected too much from you either.
+
+---
+
+Weekends became a quiet battlefield.
+
+—Are you going to the workshop today too? —his mother would ask.
+
+—Yes, we have a batch to deliver on Monday —he would answer.
+
+—One day you're going to crash —she would say—. And they'll all say "poor little one, the kid worked himself to death" and that'll be that. Who did you do it for? For Ríos? For Mauro? For a handful of pesos?
+
+She didn't do it out of spite. She did it out of fear.
+Fear of losing him on the road of effort, just as she might have lost him on the other road.
+
+But the effect was the same: the underlying message was always *don't climb so high, don't push so hard, it's not worth it.*
+
+---
+
+One night, after a row more heated than usual, his mother said the thing that left him cold:
+
+—Sometimes I think you were happier when you did less —she said—. You had more time, you laughed more, you weren't always rushing. Now you look like an old man.
+
+Estanislao set his jaw.
+
+—I was more settled —he answered—. Not necessarily happier.
+
+—Well, but I saw more of you —she insisted.
+
+He didn't know what to say.
+
+He understood that complaint: she wanted the son who was present, not the absent adult-in-progress.
+But he also knew that if he stayed home just so she could see more of him, he would end up seeing less of himself.
+
+---
+
+One afternoon at the workshop, Mauro found him sitting on a bench, staring blankly at the space between two boxes.
+
+—Did the week get to you? —he asked.
+
+—The week got to me, my mother got to me, my grandmother got to me, and La Escalera got to me —Estani answered, half joking, half serious.
+
+Mauro leaned against the worktable.
+
+—I'm going to tell you something that may or may not help —he said—: nobody likes watching someone else push themselves in a way they themselves don't dare to.
+It makes them feel guilty, or foolish, or old. So they tell you to ease off. Sometimes out of spite. Sometimes out of love.
+
+He stared at one of the pieces gleaming on the table.
+
+—My old man used to call me poor little one when I came home wrecked —he added—. "Why are you killing yourself, Mauro, this country's a disaster anyway. Better to take a steady wage and don't make waves."
+If I'd listened to him, I never would have opened this place. I'd be grumbling away at the metalworks with the others, waiting to retire.
+
+He sighed.
+
+—Was it worth it? I don't know. There are days I want to burn the whole thing down —he admitted—. But at least, if I go under, I know I went under fighting for something I chose myself. Not for someone else's comfort.
+
+He looked him in the eyes.
+
+—You need to learn to tell the difference between people who tell you to ease off because they love you and are afraid, and people who tell you to ease off because it suits them that you don't move —he said—.
+And even with the ones who love you, you're going to have to learn to disobey.
+
+Estanislao said nothing.
+
+The word *disobey* hit him strangely: he had never associated it with love.
+
+---
+
+That night at La Escalera, Julián noticed that Estani was starting to nod off over his notebook.
+
+—Sleep at home, not here —he said—. Here, I need you awake.
+
+—I've got nothing left, sir —he admitted—. I work all day with Mauro, then I come here, then I get home and they're waiting for me with long faces because they haven't seen me. Whatever I do, someone's going to be upset.
+
+Julián thought for a moment.
+
+—Welcome to the adult world —he replied—. Where whatever you do, someone's going to be upset.
+The question is: who can you live with being upset at you, and who can't you?
+
+He sat on the edge of the table, not quite comfortable.
+
+—If you betray yourself so your mother can have some peace, one day you'll be so empty that even she won't recognise you —he said—. If you respect yourself and she gets upset, there's a chance that, with time, she'll understand that it was for her too.
+
+He looked at him with an unusual mixture of hardness and warmth.
+
+—Don't let the "poor little one, you're tired, give it all up" come from the same mouth that one day is going to say "poor little one, you never amounted to anything" —he added—. Because it happens.
+People sometimes clip your wings and then blame you for not flying.
+
+Estanislao was speechless.
+
+He had never thought of it that way.
+
+---
+
+That night, back at home, his grandmother stopped him in the hallway.
+
+—You're not turning into another Julián, are you? —she asked, half joking, half serious—. All thin, not sleeping, full of strange ideas.
+
+He smiled.
+
+—I'd be glad to be even a little bit like him —he said—. At least then I'd know exactly what I'm doing here.
+
+She looked at him, surprised.
+
+—I just want you to be happy, love —she said—. I don't want you to suffer.
+
+He leaned in and kissed her on the forehead.
+
+—I don't want to suffer either —he answered—. But if not suffering means staying still for the rest of my life, I'd rather get a little tired.
+
+He wasn't sure she fully understood. Maybe she never would.
+But for the first time, he allowed himself to hold his own decision without asking anyone's permission.
+
+---
+
+Before going to sleep, he opened his notebook.
+
+He wrote:
+
+*Exhaustion from working ≠ exhaustion from being a poor little one.*
+*The first at least takes you somewhere.*
+*The second leaves you where you are.*
+
+Below, he added:
+
+*My mum and my gran want to protect me from both, but they only recognise one: the exhaustion of the body.*
+*The exhaustion of the soul that comes from not trying — they don't see that one.*
+*I've already had it. And I don't want it anymore.*
+
+He closed the notebook.
+
+Tomorrow there would be another batch of spare parts, another quiet fight at the dinner table, another night of heavy eyelids at La Escalera.
+
+He wasn't sure that road would take him out of the land of the poor little one.
+But he did know that if he turned back just so people could see him well-rested, he would be lying to himself.
+
+And he had learned, from Julián and from Mauro, that there is a lie more dangerous than any told by the State or by politicians:
+
+the one you tell yourself to avoid making the effort.

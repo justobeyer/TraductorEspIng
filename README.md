@@ -8,7 +8,7 @@ Traduce Español Inglés
 | Archivo / File | Descripción |
 |---|---|
 | [`La Teoría del PobrecitoVersion80.docx`](La%20Teoría%20del%20PobrecitoVersion80.docx) | Original en español |
-| [`TeoryEng.md`](TeoryEng.md) | **Archivo de trabajo principal (Markdown)** — Prólogo, Capítulos 1–11 completos en inglés; capítulos siguientes se irán agregando uno por uno |
+| [`TeoryEng.md`](TeoryEng.md) | **Archivo de trabajo principal (Markdown)** — Prólogo, Capítulos 1–12 completos en inglés; capítulos siguientes se irán agregando uno por uno |
 | [`teoryEng.docx`](teoryEng.docx) | Traducción en formato Word — Título, Prólogo y Capítulo 1 en inglés |
 | [`The Theory of the Poor Little One - Prologue and Chapter 1.docx`](The%20Theory%20of%20the%20Poor%20Little%20One%20-%20Prologue%20and%20Chapter%201.docx) | Copia de la traducción inicial (referencia) |
 
@@ -27,4 +27,5 @@ Traduce Español Inglés
 - **Capítulo 9 / Chapter 9:** *Los Que Cuidan Demasiado* → *Those Who Protect Too Much*
 - **Capítulo 10 / Chapter 10:** *Cansancio de No Ser Pobrecito* → *The Exhaustion of Not Being a Poor Little One*
 - **Capítulo 11 / Chapter 11:** *Pobrecitos los Gigantes* → *Poor Little Giants*
-- **Capítulo 12 y siguientes / Chapter 12 onwards:** pendiente de traducción *(próximamente)*
+- **Capítulo 12 / Chapter 12:** *Las Pocas que se Quedan con Todo* → *The Few Who Take Everything*
+- **Capítulo 13 y siguientes / Chapter 13 onwards:** pendiente de traducción *(próximamente)*

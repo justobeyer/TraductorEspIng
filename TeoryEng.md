@@ -2731,3 +2731,164 @@ Maybe nothing. Maybe something small. Maybe the next attempt would fail too.
 But for the first time, he began to suspect that the real wealth of a country didn't lie only in the big companies that appeared on TV, but in the anonymous Mauros who refused to use the poor-little-one discourse, even when they had every excuse to.
 
 And that if there was a place worth exhausting yourself for, it was there.
+
+---
+
+## Chapter 12 – *The Few Who Take Everything*
+
+Three days after the Ríos episode, Estanislao found Julián at La Escalera with a pile of papers that looked like they'd been dragged out of a house move.
+
+It was a Tuesday afternoon, the kind of autumn day where the sun comes in at an angle through dirty windows and makes everything look a little older, a little more tired. The place was nearly empty — just a couple of kids at the far end working through maths exercises — and Julián had spread out across the table a map of the country made from photocopies held together with sticky tape, crumpled reports, and an old laptop that wheezed every time he opened a new file.
+
+—What is all this? —Estanislao asked, dropping his backpack on the floor.
+
+Julián looked up. He had dark circles under his eyes, a crumpled shirt, and that look of someone who had been up all night because he'd found something that wouldn't let him sleep.
+
+—The part that doesn't make the news —he said—. The part that explains why Mauro was left in the lurch while Ríos is still standing.
+
+He pointed to one of the papers: a Ministry of Industry report, packed with numbers and tables that seemed designed for nobody to ever read.
+
+—Look at this —he said, turning the page around so Estanislao could see—. This is the register of companies receiving tariff protection. Do you know what that is?
+
+Estanislao shook his head.
+
+—Basically —Julián explained—, when a product is imported from abroad, the State slaps a massive tax on it to make it more expensive than the locally-made equivalent. That way, the local company doesn't have to compete, because the competition arrives with an inflated price tag. The idea is supposed to be to "protect national industry" and "protect jobs."
+
+He made air quotes with his fingers.
+
+—Sounds reasonable —Estanislao said, cautiously.
+
+—Sounds —Julián replied—. Until you start looking at the numbers.
+
+He opened a spreadsheet on the computer. Estanislao leaned in toward the screen.
+
+> Textiles:
+> Companies receiving tariff protection: 12 large groups.
+> Direct jobs created: 8,400 workers.
+> Subsidies and tax benefits received (last year): USD 340 million.
+>
+> Automotive:
+> Companies receiving benefits: 6 large terminals.
+> Direct jobs created: 22,000 workers.
+> Subsidies, tariff protection and benefits (last year): USD 1,200 million.
+>
+> Electronics:
+> Companies receiving benefits: 4 large companies.
+> Direct jobs created: 3,100 workers.
+> Subsidies and protection (last year): USD 280 million.
+
+Julián let Estanislao study the numbers for a moment.
+
+—Do you see it? —he asked at last—. In the automotive sector, the State hands six companies one point two billion dollars a year. How much is that per employee?
+
+Estanislao did the maths in his head. The answer was absurd.
+
+—More than fifty-four thousand dollars per employee per year —he murmured.
+
+—Exactly —said Julián—. And that's without counting what the rest of the country pays in inflated prices because they can't buy cheap imported cars.
+
+He leaned back in his chair.
+
+—Now think about this —he continued—: with that money, the State could create sixty thousand direct jobs paying each worker double the average wage. But instead, it hands it to six companies that employ twenty-two thousand and pocket the difference.
+
+He pointed to another column in the report.
+
+—And here's the best part —he said, bitterly—. Look at the declared profits of those companies over the last five years.
+
+Estanislao read. The numbers were obscene.
+
+> Automotive terminals: accumulated profits over five years exceeding USD 4,000 million, the majority sent abroad.
+
+—So —said Estanislao, feeling his stomach tighten—, we give them protection and subsidies to "take care of national industry," and they take the profits abroad.
+
+—And on top of that —Julián added—, when things go wrong, they go crying to the cameras. "Poor little industry, the State has abandoned us, we're going to have to close plants." And then come more subsidies, more protection, more handouts.
+
+He got to his feet and walked to the window.
+
+—You saw how the Ríos people talked —he said—. "Imports are killing us, we can't compete." But Ríos is small-time compared to this. These people have had protection for decades, and they still cry.
+
+He came back to the table and pointed to another sheet.
+
+—Let me give you another example —he said—. Steel industry. Three large companies. Thirty-five percent tariff protection on imported steel. What does that mean? It means you, Mauro, any SME that wants to buy steel to manufacture something, pays thirty-five percent more than it would if it could import freely.
+
+—And who does that benefit? —Estanislao asked, though he already knew the answer.
+
+—Those three companies —Julián replied—. They carve up the market between them, charge whatever price they like because nobody else can compete, and then go on TV saying they're pillars of national industry.
+
+He snapped the laptop shut, frustrated.
+
+—Look, Estani —he said—. I'm not against protecting industry when it's necessary. There are cases where it makes sense — protecting sectors that are just getting started, that need time to grow. But here we're talking about companies that have had decades of protection, that are giants, that have every tool they need to compete… and that still keep asking to be protected "because if not, poor little ones, we'll go under."
+
+He took a deep breath.
+
+—The problem —he continued— is that all that protection is paid for by those with no voice. It's paid by the guy who wants to buy a car and has to pay double what he'd pay in another country. It's paid by SMEs that need inputs and have to buy them at inflated prices here because they can't import. It's paid by the worker who earns in devalued pesos but pays dollar-equivalent prices for protected goods.
+
+He sat back down, tired.
+
+—And the worst part —he said— is the narrative. Because the moment someone says "hey, isn't it time to open up competition a little?", they jump straight in: "You want to destroy national industry? You want thousands of families to lose their jobs? Poor little workers, you're going to put them out on the street."
+
+He paused.
+
+—But they never say how many real jobs they actually create with the protection they receive. They never say how much money they pocket. They never say what the managers earn while the workers get paid next to nothing.
+
+He stared at the papers spread across the table, as though they were a map of something broken.
+
+—Do you know what I found? —he asked—. That on average, the most protected companies in the country generate less employment per million dollars received than any unprotected SME.
+
+He showed him another table.
+
+> Comparison:
+> Large company with tariff protection: 0.8 jobs per million USD of turnover.
+> Unprotected manufacturing SME: 4.2 jobs per million USD of turnover.
+
+—It's the opposite of what they tell you —he explained—. The ones that generate the most jobs are the ones with the least protection. The ones with the most protection are the ones that pocket the most money and share the least.
+
+Estanislao felt a surge of anger. The same anger he felt when he watched Mauro left empty-handed after doing his part, while those at the top took everything and then complained on top of it.
+
+—And why doesn't anyone say anything? —he asked.
+
+Julián looked at him, worn out.
+
+—Because the ones receiving protection have a megaphone —he replied—. They have media outlets, they have access to government officials, they have lobbying power. They can put a hundred workers on TV crying in front of the factory gates, even if their accounts for the previous year show two hundred million in profits sent abroad.
+
+—And the ones who lose —he continued— are millions of anonymous people who pay a little more for everything they buy, who can't compete because inputs are expensive, who have no voice anywhere.
+
+He fell silent for a moment. Outside, the sun was going down, and La Escalera filled with long shadows.
+
+—This is going in the paper —Julián said at last—. With names, with numbers, with everything. Because the theory of the poor little one isn't only from below. It's from above too. And when those above use it, they use it with the power of the State behind them.
+
+He gathered the papers together.
+
+—Mauro lost his work because Ríos decided it was more profitable to close than to improve —he said—. And Ríos could do that because it knows that if things really get rough, some government official will come out and say "we need to take care of industry, poor little ones."
+
+—Meanwhile —he finished—, the Mauros of this country, the ones who do generate real work with real effort, go under in silence — no press conference, no bailout.
+
+Estanislao stared at the map spread across the table. The lines, the numbers, the companies marked with red circles.
+
+Everything connected.
+
+The poor little one discourse served two purposes: to keep those at the bottom from moving (*what's the point, I can't, I'm a poor little one*) and to let those at the top off the hook from having to improve (*don't make me compete, I'm a poor little one too*).
+
+And in the middle, those who were trying to grow without asking for protection, without crying for the cameras, without speeches — they went under alone.
+
+He was quiet for a long time. Then he asked:
+
+—When are you going to publish the paper?
+
+Julián smiled, but not with any joy.
+
+—When I'm ready for everyone to hate me —he replied—. Those at the top because I'm pulling off their mask. Those at the bottom because I'm telling them they're capable of more than they think. And those in the middle because I'm showing them they're the ones footing the bill for the other two.
+
+He shrugged.
+
+—But that's the way it is. If nobody says it, we all keep living the same lie.
+
+Estanislao nodded.
+
+He wasn't sure what to do with everything he'd just heard, but one thing had become clear:
+
+The system was designed so that a few could take everything, while the rest footed the bill and listened to the same old story.
+
+"Poor little industry. Poor little workers. Poor little country."
+
+But nobody asked: *poor little ones… or hustlers?*

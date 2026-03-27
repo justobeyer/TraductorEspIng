@@ -2892,3 +2892,229 @@ The system was designed so that a few could take everything, while the rest foot
 "Poor little industry. Poor little workers. Poor little country."
 
 But nobody asked: *poor little ones… or hustlers?*
+
+---
+
+## Chapter 13 – *Poor Little Ones in Ties*
+
+The workshop had been running on ideas and little actual work for a week when Mauro looked up from his phone with the face of someone who'd just read something they couldn't quite believe.
+
+Outside it was raining hard — one of those April downpours that flood the streets in minutes and leave the neighbourhood smelling of mud and drain water. The rain hammered the corrugated iron roof like out-of-tune drums, and Estanislao watched the drips fall into the buckets strategically placed all around the workshop shed. Mauro had his computer open on a spreadsheet full of red figures, his glasses on — the ones he only wore when things were really screwed — and a coffee mug that had been cold for hours.
+
+—You remember the contact from Ríos? —Mauro asked, without looking up from his phone.
+
+—The one who left you on read three times and then sent you to voicemail? —Estanislao answered, with a trace of bitterness.
+
+—That's the one, —said Mauro, and now he did look up, with a mixture of curiosity and distrust—. He just messaged me.
+
+He held up the screen of his old phone — cracked from a drop he'd never got around to fixing. The message read:
+
+> *Mauro, how's it going?*
+> *Just wanted to let you know we're putting together a new supplier network for the 'new phase' of the company.*
+> *Maybe we can work something out. I've got some friends who are taking over part of the spare parts line. If you're up for it, let's get together for a chat.*
+> *Cheers, F.*
+
+—Weren't they on the verge of closing down? —Estani murmured, feeling his stomach tighten—. Didn't they go on TV crying that the State had abandoned them?
+
+Mauro smiled without humour — one of those smiles that are really just grimaces.
+
+—Turns out the abyss had a cushion, —he said—. And we paid for the cushion with our taxes.
+
+He put the phone in his pocket and stood staring at the rain running down the dirty window.
+
+—Are you going to go? —Estanislao asked.
+
+—I'm going to go and listen, —Mauro answered. Then he pointed at him with one finger—: But you're coming with me. I want you to see how these people operate. Consider it part of your education.
+
+---
+
+They met at a café in the city centre — one of those places with uncomfortable but expensive chairs, where the coffee comes with a little foam design and a foreign name nobody knows how to pronounce. *Macchiato doppio*, *flat white*, *pour over*. The walls were covered in black-and-white photos of beautiful people drinking coffee in other parts of the world.
+
+Estanislao walked in with his old jacket and worn-out trainers, and felt the glances of the other customers — girls with laptops, men in suits talking on their phones, a couple eating avocado toast at thirty dollars a plate. He wanted to disappear. He sat in a corner and ordered water because the cheapest coffee cost what he earned in half a day.
+
+Federico — the "F" from the message — arrived fifteen minutes late, wearing a blue blazer with no tie, an expensive watch gleaming under the LED lights, and a smile straight out of an advertising catalogue. His hair was slicked back, his tan fake, and he had that air of a busy man who was doing the world a favour by showing up. He smelled of expensive cologne — the kind that makes you sneeze.
+
+—Mauro! —he greeted him, throwing his arms around him like they were lifelong old friends rather than a supplier he'd left hanging—. Great to see you, man. Sorry I'm late — it's been absolute chaos. You can't imagine the meetings we're having every day. This whole restructuring situation is driving us all mad.
+
+They sat down. Estanislao hung back, silent.
+
+—So? —Mauro asked—. I saw your boss on TV practically crying. What's going on?
+
+Federico sighed, theatrically.
+
+—And well… you know how it is, —he began—. The opening up killed us. Poor little national industry, brother. The government lets go of our hand and that's it — competing becomes impossible.
+
+He took a sip of coffee, without missing a beat.
+
+—Still, you know what we sanaurelianos are like… —he went on—. We always find a way. A friendly investment group is going to buy part of the plant. Leaner, less labour burden, more flexible. The brand carries on, the assets get sorted out. The ones who suffer most are always the same ones, poor little ones: the workers at the bottom. But hey, that's the reality of the world.
+
+—And what about us? —Mauro asked, direct—. The small suppliers?
+
+Federico waved a hand.
+
+—That's exactly what I wanted to talk to you about, —he said—. The guys taking over the spare parts side want to build a new network. But fair warning — the terms are changing. No more contracts with all that detail. It'd be more… informal. Payments further apart, amounts trimmed down. We all have to pull together, right? You know how it is — we're all in the same boat now, poor little ones.
+
+He laughed as though he'd just told a joke.
+
+Mauro stared at him.
+
+—So let me get this straight, —he said—. Before, when everything was going your way, you paid me on time and with clear terms. Now that you're "struggling", you want the same from me as before — only giving me less, with more risk.
+
+Federico raised his eyebrows.
+
+—Don't put it like that, —he said—. Think of it as a partnership. You're entrepreneurs, we're entrepreneurs. All of us fighting the monster of globalisation.
+
+He used the word "entrepreneurs" the way you hand out sweets.
+
+—Besides, —he added—, if you don't take it, someone else will. There are plenty of small workshops out there hungry for work. Poor little ones — they'll do anything.
+
+Estanislao felt heat rising to his face.
+
+*"Poor little ones"* had become, now, a bargaining chip.
+
+---
+
+Walking out of the café, Mauro covered a few blocks in silence. His shoulders were tight.
+
+—Are you going to accept? —Estani asked.
+
+Mauro shook his head.
+
+—If I accept that, I'm not a partner or a supplier, —he said—. I'm a cheap accomplice. I'd be helping the people at the top play the poor little ones while they push all the risk downwards.
+
+He looked at the shop windows along the street: clothes at prices from another planet, holiday adverts, endless credit schemes.
+
+—Did you notice how he talked? —he went on—. *"Poor little national industry"*, *"poor little workers"*, *"poor little us, suffering through the opening up."* But when it came to choosing who to leave in the lurch, he didn't hesitate: small suppliers first, then the workers at the bottom. He's already figuring out where he lands in the new structure.
+
+He stopped in front of a bank with tinted glass doors.
+
+—The *"poor little ones"* in ties always land on their feet, —he murmured—. The rest of us, if we're lucky, land sitting down. Otherwise, head first.
+
+---
+
+That same week, La Escalera organised an event at a university in the city centre: an open talk on *"social mobility"* and *"new inequalities."*
+
+Estanislao didn't want to go — he was tired, saturated with speeches — but Julián insisted.
+
+—It's important that you see how these things get talked about in the places where other things get decided, —he said—. Not everything happens on the neighbourhood TV.
+
+The auditorium was neat, with padded seats. On the panel, three guests:
+
+A well-known sociologist, upper-middle class, who spoke softly and correctly.
+
+A young entrepreneur, from a family with a name, introduced as a *"success story."*
+
+An *"equity activist"* influencer who ran campaigns on social media.
+
+The title of the event was:
+
+**"IS IT POSSIBLE TO GET AHEAD TODAY? BETWEEN MERIT, PRIVILEGE AND EMPATHY."**
+
+The sociologist opened with data, graphs, tables. She spoke of *"vulnerable segments"*, *"gaps of origin"*, *"poverty traps."*
+
+—We have to avoid blaming the individual, —she said—. There are structures that limit possibilities. We can't demand the same from everyone. Poor little ones, those born with so many deficiencies.
+
+Every time she said *"poor little ones"*, she did so with an almost tender, academic tone — as though she were speaking about an exotic species.
+
+The young entrepreneur took the microphone.
+
+—I always say I got lucky, —he admitted, humbly—. I was born into a family with resources. I went to good schools. My parents helped me with capital for my first company. It would be unfair to say it was *"purely merit."*
+
+That's why in my company we make sure nobody stands out too much. No stars. We don't want anyone to feel less than. We level. We're a family.
+
+Estanislao thought of what he'd heard at Grupo Alborada. It sounded exactly the same.
+
+The activist closed the circle:
+
+—We have to stop romanticising hustle culture, —she said—. It's violent to tell someone that if they don't get ahead it's because they didn't try hard enough. That's toxic meritocracy. Instead, we have to acknowledge the wounds. Validate the pain. Support each other. Sometimes, the most revolutionary thing you can do is tell someone: *"It's fine if you can't — poor little one."*
+
+The audience applauded.
+
+Estanislao looked around. Many were middle-class students with laptops and expensive backpacks. Some were nodding, on the verge of tears.
+
+He realised something that made his stomach drop: there were people with every resource in the world talking to themselves as though they were poor little ones — victims of a system that had still managed to put them in padded seats, at a university, in front of important panellists.
+
+---
+
+In the Q&A, a woman stood up.
+
+—I studied two degrees, I have a postgrad, I speak three languages, —she said—, and I still struggle to find a job worthy of what I feel I deserve. Sometimes I think: *"poor little me, I did everything right and this country gives me nothing back."* What do we do with that?
+
+The entrepreneur nodded with empathy.
+
+—I understand, —he answered—. The frustration is enormous. Sometimes, the healthiest thing is to accept that you did what you could and that the country is in debt to you.
+
+*"The country is in debt to you."*
+
+The phrase hung in the air.
+
+Julián, beside Estani, murmured:
+
+—New model of poor little one: *"poor little me, I have a degree and this country doesn't know how to appreciate me."* Another version of *"the world owes me."*
+
+The activist added:
+
+—That's why it's important to protect your self-esteem. Don't let the system make you feel like less. If you don't make it, it's not your fault. It's the system's. Sometimes, letting go of the expectation of advancement is a form of healing.
+
+They coaxed another round of applause.
+
+Estanislao thought of Mauro. His scarred hands, the dust-filled workshop, the blank page where he sat trying to work out what to do next.
+
+He had no degrees. No postgrad. He didn't talk about *"a country in debt."*
+
+He sat down, stubbornly, to think about how not to give up.
+
+---
+
+On the way back, on the metro, a man in a suit was shouting into his phone.
+
+—I shouldn't have to compete with those people! —he was saying—. I've been in this company thirty years. That position is mine. Poor little me if they now want to bring in younger kids who are *"more qualified."* Let them go and try their luck somewhere else — I've already earned my right here.
+
+He hung up furious, collapsed into a seat, and closed his eyes, weighed down.
+
+His expression was exactly that of someone who feels like a victim. Not of poverty, but of the possibility of being measured again.
+
+---
+
+That evening, on the living-room TV, there was a report about middle-class young people leaving the country.
+
+—Poor little ones, look at that, —Estanislao's mother said—. They studied so hard and they have to leave.
+
+On screen, a young man with the accent of the well-to-do was saying:
+
+—I did everything: university, languages, volunteering. And still they don't recognise me here. I'm leaving because this country isn't at my level. Poor little me, right?
+
+Estanislao felt a strange mix of understanding and rejection.
+
+He understood the decision to leave. What grated on him was that *"poor little me"* said from an airport, valid passport in hand, while back in the neighbourhood there were people who couldn't even get to the city centre.
+
+---
+
+In his notebook, that night, he wrote:
+
+> *Working-class poor little one:*
+> *— "I can't, the system crushes me, give me something because I can't make ends meet."*
+>
+> *Middle-class poor little one:*
+> *— "I did everything, the system doesn't value me, the country owes me."*
+>
+> *Upper-class poor little one:*
+> *— "If you open up the economy, you'll destroy me — the State has to protect me."*
+
+And below:
+
+> *In every case, the hidden sentence is the same:*
+> *"Someone owes me something. I don't have to change."*
+
+Below that, he forced himself to write something else:
+
+> *"I don't deny the pain, the obstacles, the injustices.*
+> *What's starting to scare me is how much we enjoy the role of poor little one — with or without money."*
+
+He closed the notebook.
+
+Mauro was still thinking in the workshop. Julián was surely already building a new chalkboard about *"profitable bankruptcies."*
+
+And Estanislao, in the middle of all of it, began to see that the Theory of the Poor Little One wasn't an invention from his neighbourhood alone. It was a language shared by people with welfare cards and people with black credit cards. A language in which everyone gave themselves permission to change nothing, always with good reasons.
+
+And if there was one thing reading, work, and La Escalera had taught him, it was that no country ever rises speaking that language for ever.

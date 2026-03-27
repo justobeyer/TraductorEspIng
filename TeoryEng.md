@@ -1727,3 +1727,229 @@ He closed the notebook and, before going to sleep, said a new phrase to himself 
 —I'm not a poor little one. I'm in a twisted country, but I'm not a poor little one.
 
 For the first time, the phrase didn't sound like arrogance. It sounded like a starting point.
+
+---
+
+## Chapter 8 — *First Rung*
+
+The classroom was fuller than usual. It was exam night.
+
+Estanislao arrived early, which was rare for him. He wanted to sit near the window, where a little fresh air drifted in from the courtyard. But more than anything, he wanted a few minutes of silence before everything started. A few minutes to convince himself he wasn't going to make a fool of himself.
+
+Outside, the sky was painted that dirty orange of summer nights in the neighbourhood. You could hear, somewhere in the distance, the speakers from a birthday party, a dog barking, the engine of some motorbike passing fast. But inside La Escalera, the only sounds were chairs scraping, folders being opened, nervous sighs.
+
+A row of makeshift desks, white sheets of paper, biros that gave out at the worst moment. On the chalkboard, Julián had written in small letters, almost ironic:
+
+*"RELAX: NOBODY DIES FROM AN EXAM.*
+*(BUT SOME PEOPLE START LIVING DIFFERENTLY AFTER ONE)."*
+
+Estanislao breathed deeply. It had been years since he'd sat down in front of a "real" exam. He'd grown used to other kinds of tests: the ones from the street, from working under the table, from seeing whether the money would stretch to the end of the month. The last checkpoints he could remember were police checkpoints, not academic ones.
+
+Daniela, a girl with short hair and big earrings who always sat up front, gave him an encouraging gesture from across the room. Toto, a skinny kid with the face of someone who hadn't slept much, was jiggling his leg non-stop under the desk. Mirta, who had two children and came to study after working all day cleaning houses, was going over her notes with an almost religious concentration.
+
+Julián walked between the rows, his shirt creased, a thermos under his arm. He had that strange calm of people who've been through a lot of exams — from both sides of the desk.
+
+—It's a mid-term, not a last judgement —he said, looking at them all—. If you do well, you prove you can. If you do badly, you find out where you need to tighten up. Both things are useful information.
+The one thing I won't accept is "poor little me, I can't." Don't even write that. If you made it here, you've already proved you can.
+
+A nervous laugh rippled through the room. Some of them relaxed a little. Others gripped their biros harder.
+
+---
+
+The questions weren't impossible, but they weren't a gift either. Reading comprehension, a bit of history, some logic. Nothing that was pure memorisation; everything required thinking, connecting, arguing.
+
+There was one question that looked a little too much like his own life:
+
+*"Explain in your own words what 'personal responsibility within an unjust system' means. What can and what can't a person do in the face of structures they don't control?"*
+
+Estanislao stared at it for a beat longer than necessary.
+
+He wrote slowly:
+
+*"Personal responsibility isn't believing that you control everything — it's believing you control something.*
+*In an unjust system, there are things that don't depend on me: whose son you are, what the politician decides, how the rewards get handed out.*
+*But what does depend on me is what I do with the hand I'm dealt: whether I use injustice as an excuse to stop trying, or as fuel to keep myself from becoming the very thing I criticise."*
+
+When he finished writing, he realised his hand was trembling.
+
+---
+
+A week later, they came back to La Escalera to see the results. Julián had pinned a sheet to the wall, with surnames listed in alphabetical order.
+
+Estanislao searched for his own with his heart hammering.
+
+*"ESTANISLAO G. – 8"*
+
+He stood staring at it as though it were a typo.
+
+Eight.
+Not a miraculous ten, not a four out of pity.
+An eight. Good, solid, earned.
+
+Julián came over to him, mate in hand.
+
+—Don't look at me —he said—. You're the one who wrote it.
+
+—I thought I was going to do worse —Estani admitted.
+
+—Thinking isn't knowing —Julián replied—. That's why we have exams. So the brain stops making excuses and gets something real to work with.
+
+He took a sip of mate and added:
+
+—Let me be clear about something: nobody passes here out of charity. If you've got an eight, it's because you've earned an eight. If tomorrow you do badly, I'll tell you that too. Merit straight up, no dressing on it.
+
+Estanislao felt something new: pride without guilt.
+
+Nobody had handed him anything, and nobody had taken anything from him.
+It was a small feeling, but very different from the feeling of the quick money from the black car.
+
+---
+
+That afternoon, in the kitchen, his mother was going over the bills.
+
+—If they don't cut the power this month, it'll be a miracle —she muttered—. The welfare card helps, but it's not enough.
+
+Estanislao showed her the sheet with his result.
+
+—Look —he said—. Maybe in a while I can find something better once I finish secondary school. Something more stable.
+
+She smiled, tired.
+
+—God willing, love. But don't get your hopes up too much —she answered—. These days even a qualification won't save you. Poor little thing, all that studying and you still end up in the same place.
+
+The word landed like a bucket of cold water.
+
+—I'm not a poor little one, Mum —he said, gently but firmly—. I'm just starting from further back.
+
+She looked at him strangely, as though she didn't recognise the tone.
+
+—Alright, alright, don't get upset. When I say "poor little one" I mean it with love —she said in her defence—. I know you bust your back.
+
+He shrugged.
+
+—I know. But I end up believing it —he replied—. And if I believe it too much, I stop trying.
+
+It wasn't a reproach, but it left her thinking.
+
+---
+
+In the neighbourhood WhatsApp group, a new message:
+
+*"Change in the network: fewer routes, more control. Those who've already made runs, heads up. There's heavy movement in the area. Anyone who hasn't got the stomach for it, drop out now."*
+
+Ramiro wrote to him privately:
+
+—Don't listen to them, they're blowing it out of proportion. Just when it was starting to pay off, they get scared. This is competition, brother. The weak ones leave, the strong ones stay.
+
+Estanislao thought about the phrase: *the weak ones leave, the strong ones stay.*
+
+Julián had said something similar… but about something else entirely.
+
+*"Competition is tough —he'd said one night— but in the end it makes you stronger… if the game is clean.*
+*When the game is rigged, competition doesn't select the best — it selects the most cynical."*
+
+He read Ramiro's message again. Competition there meant something else: who was willing to risk more — their freedom, their life, their family.
+
+He didn't reply.
+
+---
+
+That night at La Escalera, Julián showed up with a stack of old books.
+
+—Tonight we're going to talk about a legal drug —he announced—. It's called reading.
+
+Laughter.
+
+—The more you read, the more imagination you have —he continued—. The more imagination you have, the better you get at seeing paths where others only see walls. And the more you know, the better your chances of not swallowing every story they sell you.
+
+He spread the books out on a table. They weren't new; they were underlined, with pages folded over.
+
+—I don't care if you read slowly, if it takes you a while, if you get stuck —he said—. What I care about is that you get used to letting voices into your head that aren't the TV's, or the politician's, or the drug dealer's, or the inner poor little one's.
+
+Estanislao picked one at random. It was a novel about an ordinary man who left his small town for the city and never quite fit in anywhere.
+
+—Reading gives you something else too —Julián added—. It pulls you out of the role of the sole victim of your own life. You see that others had it worse, or different, and still found a way out.
+
+He perched on the edge of a desk, awkward as always, and went on:
+
+—I want you to understand this: the stories you take in are the scripts you end up acting out.
+If all day long you're watching stories of poor little ones rescued by a leader, you'll wait for a leader.
+If all day long you're watching stories of hustlers who take the easy road, you'll want to be a hustler.
+But if you start reading stories about people who pour their soul into something, fall down, get back up, and don't compromise who they are… something inside you changes.
+
+His eyes lit up a little, the way they always did when he talked about books.
+
+—And no, I'm not promising you that reading fixes everything —he said—. But without reading, it's almost certain that nothing gets fixed.
+
+---
+
+Back home, Estanislao opened the book in bed. He read three pages, got distracted, went back. He wasn't used to it.
+
+Even so, there was one sentence that hit him: the protagonist described how, back in his village, everyone said that leaving for the city was impossible.
+
+*"It seemed impossible to me —the character said— until I read about someone who'd gone even further. That was when I stopped feeling that what I wanted was crazy and started feeling that it was a smaller version of something others had already done."*
+
+Estanislao closed the book for a moment. He thought about San Aurelio, about his neighbourhood, about the motorbike, about the welfare card, about the eight on the exam sheet.
+
+Maybe finishing secondary school wasn't so crazy.
+Maybe it was just a smaller version of something others had already done a thousand times.
+
+---
+
+The next day, the Negro called him.
+
+—Hey, Estani —he said, his voice heavy—. You know about my cousin, right?
+
+—Yeah.
+
+—Right… things got ugly —he went on—. There are people asking questions — names, routes, who moved what. If anyone calls you, you don't know anything. Are we clear?
+
+Estanislao felt the old fear creeping up the back of his neck.
+
+—What about the bike? —he asked—. I mean, the odd jobs…
+
+—For now, let's keep a low profile —said the Negro—. I appreciate everything, but it's better if people don't see too much of you. You're a good kid — poor little thing if you get caught up because of someone else's mess.
+
+The word, again.
+
+This time, though, it had a strange effect.
+More than comfort, it sounded like a verdict: *"you're a good kid, your place is on the sideline, watching others play the big game."*
+
+—I'm not a poor little one —he repeated to himself, not quite brave enough to say it out loud.
+
+He hung up and lay there for a while staring at the ceiling.
+
+He had lost:
+the steady work at the warehouse,
+the "legitimate" runs with the motorbike,
+and now the shadowy circuit reeked of police, not progress.
+
+The only thing he had that was still growing was something he'd considered almost decorative until not long ago:
+the nights of studying, Julián's words, the eight on the sheet, the book lying open on the bedside table.
+
+---
+
+That night, in his notebook, he wrote:
+
+*"Today I didn't earn any money.*
+*Today I didn't find new work.*
+*Today all I know is that I can pass an exam and read ten pages without falling asleep.*
+
+*It's not enough to pay the bills.*
+*It's more than enough to keep me from giving up."*
+
+Below it, a line from Julián that had lodged itself in him:
+
+*"Fair competition bruises your ego, but strengthens your soul.*
+*Rigged competition turns you cynical or turns you into a poor little one. Choose carefully which game you play."*
+
+He closed the notebook.
+
+For the first time in a long while, instead of counting banknotes before he fell asleep, he counted rungs.
+And though he was still very far down, he knew with a small but real certainty that he was no longer in the same place as a year ago.
+
+It wasn't success.
+It wasn't salvation.
+It was a first rung.
+
+And that, in a country full of broken lifts and locked-up staircases, was almost a miracle.

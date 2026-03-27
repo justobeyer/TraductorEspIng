@@ -329,6 +329,197 @@ For the first time, the phrase didn't sound like consolation. It sounded like a 
 
 ---
 
-## Chapter 2 — *Coming soon*
+## Chapter 2 — *Poor Little One for Today*
 
-*(Translation coming — chapters to be added one by one)*
+The next morning, the sun beat down hard on the pavement outside the community hall. The line was even longer than the one at the soup kitchen. This time they weren't handing out food: they were handing out forms.
+
+The heat rose off the asphalt and sweat ran down the faces of those waiting. Some fanned themselves with their ID cards, others gossiped, and here and there a child cried from the suffocating heat. The smell of frying from the empanada stand on the corner mingled with the stench of filth that had built up in the gutter.
+
+At the door, a sign made in a hurry with an old blanket and white paint:
+
+"NEW PROGRAM FOR SUPPORTING VULNERABLE FAMILIES.
+REGISTRATION HERE. DON'T BE LEFT OUT."
+
+Estanislao arrived accompanying his grandmother, who walked slowly, holding onto his arm. She had come in her Sunday dress, her hair pulled back with a tortoiseshell clip that had survived three decades and four floods.
+
+—I've lived long enough not to have to play the poor little one now —she joked, looking at the line that wound around the block—. If there's something to hand out, let them hand it out. I've already stood in line for bread, for milk, for medicine... one more, what's the difference?
+
+Estanislao didn't answer. He remembered the stories his grandmother used to tell him as a child: the nights without electricity, the husband who came home drunk and spent the little there was on card games, the eldest son who one day left for the capital and never came back. Three generations standing in line waiting for someone to give them something. Three generations waiting.
+
+The line snaked along the pavement. There was a bit of everything: young mothers with babies in their arms, old men with canes, kids in worn-out sneakers, women with empty shopping bags. Everyone wearing the same face of weary expectation.
+
+—They say they're giving out a new card... —a neighbor ahead of them remarked.
+—You can use it to pay electricity, gas, everything... —another added.
+—And maybe they'll up it if the crisis keeps going...
+—My sister-in-law got double because she's got four kids.
+—Guess you've got to have kids, then —someone laughed bitterly.
+
+Ramiro appeared from the back of the line, slipping through among acquaintances with that ease that people who grew up in the barrio have for getting into anywhere without asking permission.
+
+—Estani! —he called out, elbowing his way through—. Did you come to sign up too, or are you just playing VIP escort?
+
+—I'm with my grandmother —he replied, gesturing to her—. I don't know if I even qualify.
+
+Ramiro laughed loudly, but Estanislao caught something bitter underneath it. A weariness that wasn't laziness, but something deeper. Ramiro was twenty-one, but the bags under his eyes added ten years.
+
+—If you want my advice, play the poor little one, brother. Poor little one sells. The worse off they think you are, the more they give you.
+
+The woman in front of them — a heavyset woman with two kids clinging to her legs and another on the way — turned around.
+
+—We are poor little ones, son —she said, almost offended—. Or do you have some millionaire friend around here? Does it look like we're standing in line five hours in the sun for fun?
+
+The kids had dirty faces and shirts full of holes. One was gnawing on a cracker that was probably his breakfast.
+
+Ramiro raised his hands, conciliatory.
+
+—All I'm saying is, if the State wants to help, let it help. What are we gonna do? Refuse it? We've got enough trouble as it is.
+
+—That's right —the woman agreed—. Let all the help they want come. As long as my children eat, I'll be a poor little one till the moon falls down.
+
+Estanislao didn't answer. He looked around. Nobody seemed uncomfortable with the scene. Nobody was saying: "hey, but this can't go on forever." Nobody was asking: "and what happens when it runs out?"
+
+On the contrary: there was a mixture of resignation and expectation hanging in the air, like standing in line for a free concert. Something that comes to you, not something you earn.
+
+---
+
+Inside, the air was stale. The smell of damp mixed with that of fresh ink from the forms and the sweat of bodies crammed together. Some workers checked papers behind folding tables made of rusted metal piping. Some chewed gum, others scrolled through their phones between one form and the next.
+
+On the wall, next to the ruling party's flag, there was a large photo of the President smiling. It was the rehearsed smile of someone who knows they're being watched. Below it, a phrase in blue letters:
+
+"IN THIS COUNTRY, NO ONE WILL GO WITHOUT."
+
+Estanislao read the phrase twice. "No one will go without." As if hardship were something you could fix with a form. As if all it took was signing up.
+
+His grandmother stepped forward with her ID in hand, worn from being shown at so many offices, hospitals, and government buildings.
+
+—Does any young person of working age live with you? —asked the girl at the desk, without looking up from the form. She had her nails painted pink and a nose piercing.
+
+His grandmother pointed to Estanislao.
+
+—This one. My grandson. He does odd jobs with the neighbor's motorbike. Nothing steady.
+
+—Is he on the books?
+
+—No.
+
+—Does he study?
+
+—No, that either. He dropped out of secondary school last year. You know how it is, the situation...
+
+The girl smiled, relieved, as if she'd found the perfect box to tick.
+
+—Then he meets the conditions —she said, making a satisfied checkmark—. Family with a young person who's unemployed or working off the books. Excellent. That'll give you extra points.
+
+Excellent. The word landed heavy on Estanislao, as though his life were worth more the more it had fallen apart. As if not studying and not having a steady job made him special. As if his failure were a merit.
+
+—Sign here —the worker said, handing him the pen—. It's just for the record.
+
+He hesitated for a second. The pen slipped a little between his sweaty fingers.
+
+—And how long does this last? —he asked.
+
+The girl shrugged, unbothered.
+
+—For now it's six months. But those programs always get renewed. As long as things stay like this, the help will be there. Don't worry about it.
+
+—And if things get better? —he pressed.
+
+The girl looked at him as if he'd asked something out of place. As if "better" weren't a word people used on this side of the counter.
+
+—Look, man, things are rough right now. Make the most of it. Poor little one for today beats nothing, right? Don't be an idiot.
+
+The phrase stuck in his head: "poor little one for today."
+
+He signed. What made him any different from everyone else in that line? He'd signed too. He'd accepted too. He'd said "yes" in exchange for something that, deep down, he didn't want to need.
+
+---
+
+Coming out, his grandmother was happy. Her eyes shone the way they did when there was something to eat on the table or when she found a deal at the corner shop.
+
+—See? Something is something. This is going to ease things up a little. You've had to fight hard enough since you were small. Now it's our turn for a little luck, sweetheart.
+
+He looked at her with affection. If anyone deserved a break, it was her. The one who had raised him while his mother worked as a live-in housekeeper for wealthy families. The one who had taught him to tie his shoelaces, to look both ways before crossing, to pray before bed — even though he'd never really understood who it was he was praying to.
+
+Still, something grated inside him. Something he couldn't name yet, but that sat in his stomach like a stone.
+
+—Yeah, grandma. But... how long is it going to be like this? —he asked, unsure how to put it—. How long are we going to be stuck in "poor little one for today" mode?
+
+She frowned, as if the question had offended her a little.
+
+—Until God decides otherwise, sweetheart. What do you want me to say? That we write a letter to the President? We're barrio people, Estani. This is what there is.
+
+Ramiro, who was waiting for them on the corner smoking a cigarette, waved his newly approved card like a trophy.
+
+—Check it out, man. With this, I'm set for the month. One less thing to worry about. Covers the electricity, the gas, and I've got enough left over for beers on Saturday.
+
+—What about that construction job you were going to try? —asked Estanislao.
+
+Ramiro laughed and flicked the butt onto the ground.
+
+—They told me to start off the books and then they'd see about putting me on properly. Kill myself twelve hours in the sun, eat dust, risk falling off a scaffold, wreck my back for life... and they might not even sort me out in the end. Whereas with this... —he shook the card— ...it comes in steady. No getting up. No boss screaming at me. No owner screwing me over. Basic math, Estani.
+
+—And long term? —Estanislao pressed.
+
+Ramiro looked at him as if he were speaking another language. As if "long term" were a concept from another planet, the kind of thing they taught at universities where nobody from the barrio ever set foot.
+
+—Long term, we're all dead, brother. My old man worked himself into the ground for forty years and died at fifty-five with his lungs rotted out. What for? Around here, the guy who thinks long term ends up crazy. You've got to survive today. Tomorrow, we'll see.
+
+---
+
+That night, on the neighborhood's little soccer pitch, the subject came up again. The smell of dry grass and warm beer hung in the air as the guys compared what they'd gotten. The streetlights barely lit the dirt field, and the crickets kept rhythm with the laughter.
+
+—My mom got less because I'm working off the books at the supermarket —one of them was complaining, a skinny guy in a River Plate shirt—. She said if I quit and sign up, they might up the benefit. That I'm worth more to her unemployed than working.
+
+—My uncle's money went up across the board when he stopped driving his cab —another added, a blond guy with a scar on his eyebrow—. You get more out of earning a little without working than killing yourself for nothing, man. The guy now gets up at eleven, watches TV all day, and takes home more than when he was breaking his back.
+
+They laughed. Not with malice, but with that twisted logic you learn through hard knocks. Everyone understood the math: lots of effort, little reward versus little effort, guaranteed reward. Who was the idiot in that equation?
+
+Everyone, except Estanislao, was starting to feel that logic as natural. Like water running downhill. Like night following day.
+
+—But if we all do that, who keeps the whole thing going? —he asked, leaning against the rusted chain-link fence—. Where does the money come from for all these cards?
+
+A brief, uncomfortable silence cut through the conversation. The laughter died for a second. Then someone tossed out:
+
+—That's for the people at the top to figure out. That's what they're there for. That's what they get paid the big bucks for.
+
+—Exactly —Ramiro capped it off, cracking open another can—. Our job is to survive, not to save the country. Poor little ones, remember? That's our category. We didn't make it up.
+
+The laughter came back, and with it the game. Someone kicked the ball, another shouted "in the net!", and the conversation dissolved into the dust kicked up by running feet.
+
+Estanislao smiled out of obligation, but the phrase kept turning over in his mind:
+
+"Poor little ones for today. Let the country sort itself out."
+
+He was beginning to suspect that the country didn't sort itself out, precisely because too many people had made that deal: accepting being a poor little one in the short term to avoid the effort that would change things in the long term. A million small transactions that, taken together, formed one enormous cage.
+
+---
+
+Back in his room, the old fan moved the hot air around without cooling anything. The blades squealed with every turn, as if complaining about life. Outside, you could hear dogs barking at the night and, in the distance, the bassline of a cumbia drifting from some club.
+
+He opened the notebook again. The pages smelled of damp, like everything in that house.
+
+On the page where he had written down the previous day's definition, he wrote underneath in small letters:
+
+"Being a poor little one today gives you something.
+Being a poor little one forever takes everything away.
+A country full of short-term poor little ones condemns itself to being a poor little one forever."
+
+He looked at the lines. He liked how they sounded. They had the rhythm of something important.
+
+On the news on the crooked TV, they were talking about the new program again. The journalist — a blonde in a blue suit who had never set foot in a neighborhood like his — smiled as if she were delivering good news.
+
+—The initiative aims to support the most vulnerable sectors —she said in her broadcaster's voice—. All indicators suggest that rates of state dependency will continue to grow. A management success for the ruling party.
+
+"Rates of state dependency." "Management success."
+
+Estanislao turned off the television before they finished the sentence. He sat staring at the black screen, where his own face was barely reflected back at him.
+
+For the first time, he felt clearly that it wasn't just his life at stake, but the way his entire country saw itself. It wasn't just him. It was millions. Millions of people choosing today out of fear of tomorrow.
+
+He'd chosen it too, at least for today. He'd signed too. He'd accepted the card too.
+
+Most of his friends had taken — consciously or unconsciously — the easy road: poor little ones for today.
+
+He didn't yet know what he was going to do. The only thing he was sure of was that this choice, repeated millions of times, was the one writing the destiny of San Aurelio. And of the whole country.
+
+And he didn't like the sound of that ending one bit.

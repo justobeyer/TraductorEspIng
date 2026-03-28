@@ -3375,3 +3375,269 @@ I hope I'm wrong. I hope the middle class finds a new narrative — one that is 
 But until that happens, the middle class will remain the loudest, most resentful, and most paralysed sector in the country.
 
 *(End of excerpt. In the margin, in Julián's handwriting: "They'll say I betrayed them. But someone has to say it.")*
+
+
+---
+
+## Chapter 16 – *The Price of Not Competing*
+
+The night had come early that Friday in May, as if the sun too were exhausted by a country running at half-speed.
+
+Estanislao walked the ten blocks from the bus stop to La Escalera with his hands buried in his jacket pockets and his collar turned up against the icy wind sweeping down from the avenue. The streetlamps flickered as always — some broken, others casting that yellow light that made everything look older than it was — and the smell of Marta's canteen stew drifted to the corner, mingled with the exhaust fumes from the packed buses rolling past with faces full of weariness.
+
+He had left the workshop early because Mauro had no new work that afternoon, and because Julián had sent a message to the group: *"Come tonight, all of you. There are things you can't learn a little at a time."*
+
+When he pushed open the door of La Escalera — that wooden door that always creaked, painted dark blue years ago, though now the blue was flaking away to reveal earlier layers of green, of brown, of history — he found the place fuller than usual. Extra chairs had been pulled from the storeroom, a gas heater someone had connected with a dubious hose, and the smell of reheated coffee that always lingered when Julián was preparing one of his "long classes."
+
+The blackboard at La Escalera was full before anyone had even arrived.
+
+Julián had written three large phrases, one below the other, in that messy but legible handwriting he used when he wanted the words to hit hard:
+
+*"I DON'T WANT TO LOSE."*
+*"I DON'T WANT TO MAKE AN EFFORT."*
+*"I DON'T WANT TO CHANGE."*
+
+And to the right, with an arrow:
+
+*"THEREFORE I ASK THE STATE TO PROTECT ME."*
+
+When Estanislao walked in, he stood looking at them for a moment without sitting down.
+
+"Big night tonight, it seems," he said.
+
+Julián was leaning against the desk, shirt half-tucked, *mate* in hand.
+
+"I'm fed up," he replied. "Fed up with hearing the same tune with different lyrics."
+
+He stood up.
+
+"We're going to make sense of everything we've been seeing," he announced. "Ríos, what you saw at the university, what's happening with Mauro, what's happening with all of you."
+
+He wrote four words on the side of the board:
+
+*BIG COMPANIES*
+*MIDDLE CLASS*
+*WORKING CLASS*
+*THE STATE*
+
+"Question," he fired off. "Why do you think so many different players — with such different amounts of money and power — all end up repeating the same underlying phrase: *'poor little me'*?"
+
+A murmur. Someone said "because it's true"; another said "because it wins votes"; a girl ventured "because nobody wants to feel guilty."
+
+Julián made a gesture that meant *all of that*.
+
+"Deep down," he said, "there's something simpler and uglier: they don't want to compete."
+
+He wrote in large letters:
+
+***FEAR OF COMPETING.***
+
+"Competition, when it's fair, has terrible things about it," he explained. "It shows you where you're worse. It forces you to improve. It leaves you behind if you fall asleep. Nobody enjoys having their limits exposed. So instead of saying 'I'm afraid to compete,' we say something else: *'poor little me if they make me compete.'*"
+
+He turned to face the group.
+
+"Let me give you some examples," he continued.
+
+"*Big companies with protection:* 'If they open up the economy, I'll go under. I need the State to put up barriers for the others. Tariffs, regulations, quotas. Poor little national industry.' And who pays for that? The person who could buy better and cheaper, or the person who wants to start a new business and isn't allowed into the game."
+
+He drew an arrow on the board:
+
+*PROTECTED GIANT*
+*← STATE*
+*← TAXES / PRICES / BARRIERS*
+*← CUSTOMERS / NEW ENTREPRENEURS*
+
+"Money and opportunities flow *from those who could compete* toward *those who no longer want to compete*," he said. "That is 'taking — through the State — from those who can still move'."
+
+He glanced at Estanislao for a moment.
+
+"Sounds familiar, doesn't it?" he asked.
+
+Estani nodded.
+
+He thought of Mauro, of Ríos's contact offering worse terms "because we're all struggling now — let's be solidary."
+
+---
+
+Julián continued.
+
+"*The credentialled middle class*," he wrote.
+
+"'I have a degree, I have a postgraduate diploma, I speak languages… and this country doesn't recognise me. Poor little me — the system owes me a good position.'"
+
+"So what happens?" he asked. "They ask the State to introduce quotas, to force employers to hire by credentials, to level downward so nobody stands out too much. Because if someone without a degree but with more talent, more discipline, or more drive comes along, that's a problem. It's easier to say: 'without this little piece of cardboard you can't play.'"
+
+He drew another arrow:
+
+*ESTABLISHED PROFESSIONALS*
+*← PROFESSIONAL BODIES / UNIONS / STATE*
+*← RULES OF ACCESS*
+*← NEW ENTRANTS / SELF-TAUGHT PEOPLE / SMES*
+
+"Same thing again," he said. "Space, markets, and recognition are taken from those *who are willing to compete*, in the name of protecting the 'poor little ones' who 'did everything right' and don't want to be measured against anyone again."
+
+---
+
+He underlined *WORKING CLASS*.
+
+"And in the working class," he continued, "where there are real wounds, real poverty, real deprivation — something similar happens. Instead of designing difficult but achievable paths for genuine competition — demanding education, formal work, clear rules — the shortcut gets chosen: 'give them direct cash, permanent subsidies, frozen tariffs, and don't ask too much of them, poor little things.'"
+
+He wrote:
+
+*"THEY CAN'T."*
+*(TRANSLATION: "I DON'T WANT TO DEMAND ANYTHING OF THEM.")*
+
+"And who pays for all that?" he asked. "Those who produce something, those who pay taxes, those who risk their money or their time on something new. And listen — some support is necessary; I'm not saying we throw anyone overboard. What I'm saying is that when you turn that support into an eternal entitlement without responsibility, you kill the motivation to compete."
+
+He leaned forward.
+
+"The Theory of the Poor Little One, applied this way, means *everyone* takes something from *someone more competitive*, using the State as the intermediary," he summed up. "The big businessman from the small entrepreneur. The established professional from the one coming up from below. The subsidised sector from the one that actually produces. The politician who doesn't want to lose votes from anyone who threatens to change the game."
+
+---
+
+He took a sip of the *mate*. It was cold, but he didn't seem to notice.
+
+"Why do they do it?" he asked. "Because deep down they're terrified of sitting down on a level playing field and saying: 'OK, let's see who does it better.'"
+
+He drew two columns:
+
+*"FAIR GAME"* vs *"RIGGED GAME"*
+
+Under *"FAIR GAME"* he wrote:
+
+*— REAL COMPETITION*
+*— DEMANDS*
+*— RISK OF LOSING*
+*— FORCED IMPROVEMENT*
+
+Under *"RIGGED GAME"*:
+
+*— PROTECTION*
+*— POOR-LITTLE-ME DISCOURSE*
+*— USE OF THE STATE*
+*— COLLECTING WITHOUT IMPROVING*
+
+"The problem," he said, "is that the rigged game isn't paid for by thin air. We all pay for it. Those who lose job opportunities because a company never improves. Those who pay more for bad products because 'we have to protect the industry.' Those who can't start anything new because every union, every state body, every group has already carved out its quota of poor little ones to justify."
+
+---
+
+He raised his voice slightly — unusual for him.
+
+"Let's not confuse two things," he warned. "One thing is protecting someone who genuinely can't compete — through illness, disability, a brutal fall. Quite another is building a system where the general message is: 'don't compete, don't make an effort, don't change — there will always be someone to take from through the State.'"
+
+An uncomfortable silence fell.
+
+"And here's the difficult part," he added. "If you swallow that message — even if you're at the bottom — you play the same game. They convince you that the person who works their bones off, who studies harder, who takes risks, is 'stealing something that should be yours.'"
+
+He looked at Estanislao and several others.
+
+"That's why they sell you the idea that the person who competes well is your enemy," he said. "If the kid who leaves the neighbourhood and builds something is a 'class traitor', if the one who studies hard is a 'meritocratic piece of crap', if the one who takes risks is a 'potential crook' — it's over. You're left with only those who know how to bleed, not those who know how to build."
+
+---
+
+A hand went up.
+
+"But, Professor," a girl said, "what do we do if competing for real feels impossible? I mean, if everything is so rigged, doesn't it end up being better to try to get something too, just to survive?"
+
+Julián took a deep breath.
+
+"Good question," he replied. "The short answer: *it depends on who you want to be*."
+
+He stepped closer to the edge of the chairs.
+
+"If we all give up and say 'fine, since the game is bent, I'll collect what I can on the side too' — the country becomes one big favour-trading kiosk," he explained. "Nobody produces anything real, everyone bills each other, and in the end there's nothing left."
+
+He pointed to Estani.
+
+"You, for example," he said. "You had three roads:
+A: be a poor little one forever.
+B: be clever with the black car.
+C: grind your soul into a workshop that falls and picks itself back up."
+
+A slight smile.
+
+"I'm not promising that Road C makes you rich," he added. "But at least *you're not taking anything from anyone through the State*. You're trying to live off something that, if it grows, can add to the world — not just drain it."
+
+---
+
+Estanislao raised his hand this time.
+
+"But Professor…" he said, "what do we do about the ones who *can* compete and choose not to? Ríos, the people at the university, the ones we saw the other day. Are we going to keep propping them up forever?"
+
+Julián looked at him with something close to pride.
+
+"The honest answer is: today, in this country, *yes*," he said. "In the short term, you and I — with our taxes, our spending, our silence — prop up many people who could compete better but prefer not to risk their comfort. Is it fair? No. Is it how it is? Yes."
+
+He ran a hand through his hair.
+
+"The more useful question is a different one," he continued. "Are *you* going to become more like them, or are you going to be the exception?"
+
+He wrote on the board:
+
+*"I CAN'T COMPETE"*
+vs
+*"I DON'T WANT TO COMPETE"*
+
+"'I can't compete' is sometimes true," he said. "If you were born in misery — without food, without books, without health, with violence — you're clearly at a disadvantage. There the State has to *level the floor, not the ceiling*. But 'I don't want to compete' is something else entirely. It's laziness, it's fear, it's pride. And to justify that phrase, people invent stories in which they're always the perfect victims."
+
+He turned around, eyes lit up.
+
+"San Aurelio is a country full of people who, *being capable of competing*, prefer to collect," he said. "Collect subsidies, collect protections, collect automatic respect, collect credentials, collect rights without obligations. And yes — there are also millions who break their backs and see almost none of that. If you want this to change even a little, you cannot be part of the first group."
+
+---
+
+The class ended late.
+
+Some left serious, others angry, others confused.
+
+Estanislao lingered, packing his things slowly.
+
+Julián came over.
+
+"Anything turning over in your mind?" he asked.
+
+"Yes," Estani replied. "That everyone seems to be trying to take something from someone, somehow. Those at the top, through the State. Those at the bottom, through the State. And whoever wants to make their own way — without asking and without stealing — gets left in the middle, taking punches from every side."
+
+Julián laughed, wearily.
+
+"Yes," he said. "That's a pretty good description."
+
+He put a hand on his shoulder.
+
+"That's why what you and Mauro are trying to do is so unusual," he added. "You're trying to live *without extorting anyone*. Without playing the poor little one and without playing the sharp operator. That minority is the only hope that this country might stop being a war of poor little ones against poor little ones."
+
+He pocketed the marker.
+
+"And I'll tell you something else," he added. "Don't expect applause. The rigged system needs you to fail so it can keep saying: 'See? It can't be done. Poor little things.'"
+
+---
+
+That night, Estanislao went back to the workshop.
+
+Mauro was still there, a flickering lamp over the table and a pile of papers covered in ideas.
+
+"You know what I've been thinking?" said Mauro, not looking up. "That the only advantage we have over them is that *there's no one for us to take from*. We're forced to create, not to collect."
+
+He smiled, crooked.
+
+"It's terrible," he admitted. "But it's also freedom."
+
+Estanislao sat down, tired, but with something new burning inside him.
+
+In the neighbourhood, the television kept talking about poor little ones: the factories closing, the professionals leaving, the neighbourhoods that couldn't make it to the end of the month.
+
+In his notebook, he wrote:
+
+*"Many people don't want to compete. They'd rather have the State find them clients, salaries, positions, respect. For that they need to paint themselves as poor little ones. Every time they manage it, someone who actually wanted to compete loses a little air."*
+
+And at the end, a sentence that came without thinking:
+
+*"I don't want to live off the State taking from others to give to me. I'd rather die exhausted than live on my knees saying 'poor little me' forever."*
+
+He closed the notebook.
+
+The country was still the same.
+
+But he, little by little, was growing less and less like the script they had written for him.
+
+And that — even if nobody applauded — was already a form of victory.

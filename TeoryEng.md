@@ -3641,3 +3641,212 @@ The country was still the same.
 But he, little by little, was growing less and less like the script they had written for him.
 
 And that — even if nobody applauded — was already a form of victory.
+
+
+---
+
+## Chapter 17 – *The Visit That Protects*
+
+The morning was quiet. Too quiet.
+
+The winter of San Aurelio had that strange quality: some days were grey and frozen, with wind that cut your face, and others — like this one — arrived with a mild sun that deceived, that made you believe everything could be all right even though nothing was. The sky was clear, almost postcard blue, and from the workshop you could hear birdsong from a nest some birds had made in the hollow of a tree at the side of the shed — that dry tree Mauro had never had time to cut down.
+
+Estanislao had arrived earlier than usual, thermos under his arm and notebook in his bag, because the previous night he had stayed up late writing and needed to make up for it. He could still feel the cold of the damp bed back in the neighbourhood, the smell of the kerosene his grandmother lit to warm the room, the creak of the metal door as he left without waking anyone.
+
+Mauro was already there, as always. He had on his everyday stained shirt — the one that had once been blue and was now some indefinite colour — and his leather apron hanging from the nail by the door. His hands gleamed with the machine oil that never fully came off, and on the workbench there was a cup of cold coffee — the third of the morning, Estanislao reckoned — and a half-open packet of water crackers.
+
+Mauro and Estanislao were fitting a metal frame for a greengrocer in the neighbouring neighbourhood. It wasn't a big contract, but it paid cash and depended on no giants and no emails with blind carbon copies. The iron bars were being assembled patiently, each weld checked twice, because Mauro didn't tolerate half-finished work.
+
+"If we can make it solid and cheap," Mauro said, "maybe the greengrocer recommends us to others. Small market, less glamorous than Ríos, but at least if someone gets hurt we find out by name, not by news bulletin."
+
+The sound of a motorbike interrupted the sentence.
+
+Not just any motorbike. It was one of those municipal ones, with official stickers and a helmet bearing the council crest. Behind it came a white car with no markings, but with that presence that gave away "people with paperwork."
+
+Estanislao felt a knot in his stomach.
+
+"Something's coming," he said quietly.
+
+The motorbike pulled up in front of the workshop. Two people got out of the car: a man in a vest that read *"Labour Inspection — Worker Protection"* and a woman with a clipboard and a tablet.
+
+The man in the vest was smiling with professional courtesy; the woman had a permanently Monday face.
+
+"Good morning," said the man in the vest. "We're from the Directorate of Labour and Safety. We're carrying out surveys of workshops in the area. Who's in charge?"
+
+Mauro wiped his hands on a rag and stepped forward.
+
+"That's me," he said. "Mauro Grieta."
+
+The woman looked around, taking notes on the tablet.
+
+"How many employees do you have?" she asked.
+
+"None permanent," Mauro replied. "Him" — he pointed to Estani — "is on a trial basis, on a project. We're trying to get everything in order so we can hire properly."
+
+The man in the vest smiled more broadly.
+
+"Exactly," he said. "We're here to help. There are a lot of irregularities in these kinds of places. We don't want anyone exploiting anyone, or workers left without protection. Poor little things if not, right?"
+
+The word landed like a marked chip.
+
+---
+
+The walk-through of the workshop was thorough.
+
+"That loose cable — dangerous."
+"That machine — no warning sign."
+"Fire extinguisher expired."
+"We don't see an evacuation plan."
+"Where are the personal protective equipment items? Hard hat, goggles, certified gloves."
+
+Mauro tried to explain.
+
+"We're small, still getting everything sorted," he said. "It's not that we don't want to look after anyone. We're in the process."
+
+The woman only looked up from the tablet to observe something with technical disapproval.
+
+"In the process or not, the regulations are clear," she replied. "The worker shouldn't have to pay for the employer's financial problems with their health. They already do enough. Poor little things."
+
+She looked at Estanislao.
+
+"You, for example," she said. "How many hours do you work here? Do you have health insurance? Do you get paid overtime? Do you get rest breaks? You know you have rights, don't you?"
+
+She was looking at him with that mix of standardised concern and authority that admitted no nuance.
+
+Estanislao felt a strange pang: on one hand, yes, he knew he wasn't on the books or covered. On the other hand, he had chosen to be there — learning — instead of doing runs in a black car or waiting on a welfare payment.
+
+"We're sorting that out," he said, slowly. "Mauro is teaching me. I want it to go well for me too."
+
+The woman nodded with condescension.
+
+"Of course, of course. But rights can't wait until the business owner learns," she replied. "That's what the State is there for. To protect those who have least."
+
+---
+
+At the end of the inspection, the verdict:
+
+"We're going to draw up a report," said the man in the vest. "It's not a closure order yet. But there are several serious observations. You need to regularise the employment situation of your staff, bring the facilities into compliance, meet the mandatory equipment requirements, and update your licences."
+
+The woman added:
+
+"Understand that we're not doing this to bother you, but to protect the workers. If we don't do this, the poor little ones are them."
+
+The paper contained words like "formal notice," "15-day deadline," "penalties," "possible closure."
+
+When they left, the silence came back louder than before.
+
+Mauro sank onto a bench, holding his head.
+
+"They want to take care of us so much they're suffocating us," he said at last.
+
+Estanislao looked at the report. He couldn't deny that some things were true: the expired extinguisher, the dangling cable, the missing signs.
+
+"What now?" he asked.
+
+Mauro shrugged.
+
+"Now I have to decide what I go into debt for first," he replied. "Whether I comply with all this so they don't shut me down, or pay the rent, or buy you a bloody certified hard hat that costs half your weekly wage."
+
+He stood up, walked around, came back.
+
+"You know what pisses me off the most?" he continued. "If I close because I can't keep up, tomorrow some report will say: 'Poor little informal workers suffering precarious conditions.' Nobody will say: 'Maybe we overdid it a bit trying to protect them from so much danger that we didn't let them work at all.'"
+
+---
+
+At home, the news was told with a different narrative.
+
+"See?" said his mother when Estani told her. "I told you that wasn't safe. The State, at least, is paying attention. Thank goodness they go and inspect — poor little things, the kids who work in those places."
+
+His grandmother nodded.
+
+"A nephew of mine lost a finger in a workshop like that," she mentioned. "Nobody was held accountable. It's good that they crack down a bit now."
+
+Estanislao couldn't deny the stories. He knew about real abuses, about sweatshop workshops, about bosses who treated people as disposable parts.
+
+But he couldn't help thinking about Mauro, about his folder of regulations, about his cold mate and his head full of figures.
+
+"Not all workshops are the same," he said. "And not all bosses are the same. Some are trying to do things right, but the system treats them all as if they're exploiters by default."
+
+His mother shrugged.
+
+"Poor little workers," she repeated. "They're the ones who matter."
+
+He wanted to answer "I'm a worker too," but he didn't have the energy.
+
+---
+
+At the workshop, the following week was a race against an invisible clock.
+
+Mauro started putting up "emergency exit" signs on a door they almost never opened. He bought a new fire extinguisher on instalments. He searched online for the price of certified hard hats, goggles and gloves.
+
+"I won't lie to you," he said one day, while they looked over a price list. "For every thing I buy to comply with a regulation, I stop buying something else we need to produce. But if I don't comply, they pull the shutter down 'to protect you,' poor little thing."
+
+Estanislao felt the discomfort lodged in his chest.
+
+"I want to be protected," he said. "I don't want to lose a finger or die in a fire."
+
+"And I want to protect you," Mauro replied, seriously. "But here they're not asking me how. They're telling me how they decided I have to protect you. And if I can't, you're left with no finger and no job. And they sleep soundly: 'We enforced the law.'"
+
+He scratched his beard.
+
+"You know what's the maddest thing?" he added. "If I close, those inspectors don't lose their jobs. They keep 'protecting' others. The only ones with no one to pass the bill on to are you and me."
+
+---
+
+One day, while they were stacking some iron bars, the greengrocer they were building the frame for appeared.
+
+"Hey, is it true they're going to shut you down?" he asked Mauro.
+
+"Not yet," Mauro replied. "But if I don't comply with everything they're asking, probably."
+
+The greengrocer scratched the back of his neck.
+
+"Look, if you close I have to buy the frame from the usual lot," he said. "The ones who charge you triple because they have everything in order and do lobbying at the council. Poor little things they're not. A guy like you suits me better."
+
+It was the first time in days someone had said out loud what Estanislao felt: that official protection sometimes ended up benefiting those who needed it least.
+
+---
+
+That evening at La Escalera, Julián listened to the account of the inspection with half-closed eyes.
+
+"I've seen it a thousand times," he said. "The 'worker protection' vest, the word 'poor little thing' as a rubber stamp, the report with the gentle threats. If you were a big business owner, you'd call a politician friend, arrange an exemption, donate something to some campaign — done. Because you're a Mauro, you bow your head or they break you."
+
+"So what do we do?" asked Estanislao. "Accept being taken care of until we can't breathe? Or turn against every regulation and end up like those who exploit people?"
+
+Julián took a deep breath.
+
+"There's no easy answer," he said. "There are battles fought inside the system: complying with what actually makes sense, denouncing the rest. And there are battles fought outside it: creating paths where the State is slow to arrive because it doesn't understand them."
+
+He leaned against the board.
+
+"What matters for you right now," he added, "isn't solving the country's dilemma. It's deciding something smaller but harder: whether, when they point at you as a poor little one, you'll accept the role completely — or say, 'Yes, I need care, but I also need to be left to try.'"
+
+He looked at him steadily.
+
+"You're no less a victim for taking charge of what you can do," he said. "You're just harder to manipulate."
+
+---
+
+That night, in his notebook, Estanislao wrote:
+
+*"Today they came to 'protect me' from Mauro. They almost managed to leave me without Mauro."*
+
+And he added:
+
+*"There are two ways to use the words 'poor little worker':
+— so they don't take a finger off you.
+— or so you can't raise your hand."*
+
+Below that, he left himself a line like an order:
+
+*"I want to be protected, yes. But not at the cost of being locked back into the role of the poor little one who can't choose."*
+
+He closed the notebook.
+
+Tomorrow they would keep hanging signs, buying things on instalments, thinking about how to produce without being suffocated.
+
+The country hadn't changed. The State kept handing out "protection" as if it were holy water. Those at the top kept knowing how to dodge the blows better.
+
+But there, inside a small workshop with no bright signs, two men refused to accept that being "protected" meant not being allowed to try anything.
+
+And even though nobody was going to write a story about it, it was precisely in that tiny point that the Theory of the Poor Little One met real resistance.

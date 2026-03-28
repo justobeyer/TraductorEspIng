@@ -8,7 +8,7 @@ Traduce Español Inglés
 | Archivo / File | Descripción |
 |---|---|
 | [`La Teoría del PobrecitoVersion80.docx`](La%20Teoría%20del%20PobrecitoVersion80.docx) | Original en español |
-| [`TeoryEng.md`](TeoryEng.md) | **Archivo de trabajo principal (Markdown)** — Prólogo, Capítulos 1–20 completos en inglés; capítulos siguientes se irán agregando uno por uno |
+| [`TeoryEng.md`](TeoryEng.md) | **Archivo de trabajo principal (Markdown)** — Prólogo, Capítulos 1–21 completos en inglés; capítulos siguientes se irán agregando uno por uno |
 | [`teoryEng.docx`](teoryEng.docx) | Traducción en formato Word — Título, Prólogo y Capítulo 1 en inglés |
 | [`The Theory of the Poor Little One - Prologue and Chapter 1.docx`](The%20Theory%20of%20the%20Poor%20Little%20One%20-%20Prologue%20and%20Chapter%201.docx) | Copia de la traducción inicial (referencia) |
 
@@ -36,4 +36,5 @@ Traduce Español Inglés
 - **Capítulo 18 / Chapter 18:** *Los que Defienden y los que Ofrecen* → *Those Who Defend and Those Who Offer*
 - **Capítulo 19 / Chapter 19:** *Dos Deudas* → *Two Debts*
 - **Capítulo 20 / Chapter 20:** *Mal Ejemplo* → *Bad Example*
-- **Capítulo 21 y siguientes / Chapter 21 onwards:** pendiente de traducción *(próximamente)*
+- **Capítulo 21 / Chapter 21:** *Lección para el Barrio* → *A Lesson for the Neighbourhood*
+- **Capítulo 22 y siguientes / Chapter 22 onwards:** pendiente de traducción *(próximamente)*

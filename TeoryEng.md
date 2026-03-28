@@ -4641,3 +4641,279 @@ He couldn't yet picture how quickly.
 But he sensed that if the system couldn't buy Mauro… it would try to *remove him from the board.*
 
 And that one way or another, they were going to come looking for him again.
+
+---
+
+## Chapter 21 – *A Lesson for the Neighbourhood*
+
+The week after the "Pact for Those Who Have the Least" was a collection of small frights.
+
+September had arrived with that damp heat that heralds spring, and the north wind carrying the smell of burning from the fields on the other side of the river. The nights were restless, full of mosquitoes and dogs barking at shadows nobody else could see.
+
+Estanislao was sleeping badly. He woke at three in the morning with his heart racing, listening to sounds that could have been the wind against the tin sheets — or something else. The notebook was always on the bedside table, open to the page where he had begun to write what he was calling "The Map."
+
+A neighbour mentioned he had seen a plainclothes inspector taking photographs from the corner — a man in a light-blue shirt and dress trousers that clashed with the neighbourhood.
+
+Omar, from the union, walked past the workshop twice without coming in, each time noting something on his phone with the expression of an accountant tallying other people's debts.
+
+The black car started passing more often, slowly, as if taking the measure of the block — the purr of the engine had become a recognisable sound.
+
+Mauro watched it all, the way someone keeps score of storms. His eyes were more sunken than before, his beard more neglected.
+
+"They're sizing us up," he said one afternoon. "They don't need to rush. Time is on their side."
+
+Estanislao tried to concentrate on the metal, on the small orders, on the notebook. But the background noise was always the same: *they squeeze from above, they offer from below.*
+
+---
+
+One night, with the workshop almost shut — the sun had sunk behind the city-centre buildings leaving a violet sky going black at the edges — the familiar engine sound was heard.
+
+The air smelled of damp, of jasmine from some neighbour's patio and of the hot grease of a late fry-up. The crickets had started their night chorus, interrupted only by the occasional bark of dogs.
+
+It was not a motorbike. It was the black car.
+
+This time they did not stay on the footpath.
+
+The car turned into the block, braked in front of the workshop and mounted the kerb slightly, taking up half the pavement. The front door opened slowly.
+
+The Boss got out unhurriedly — light shirt open at the collar, a leather jacket that probably cost more than the entire workshop inventory, neat branded imported trainers. He had the air of someone who does not need to hurry because the world waits for him. In the back seat, Estanislao made out two more silhouettes. They did not move — they looked like stone sculptures, expressionless faces, hands on knees.
+
+The smell of expensive cologne reached him before the man did, mixing with the smell of metal and oil from the workshop.
+
+"Mauro," the Boss greeted him, as if he were an old customer. "We need to talk business."
+
+Mauro folded his arms.
+
+"I don't do business with you," he replied, without preamble.
+
+The Boss smiled, patiently.
+
+"I'm not suggesting you sell drugs over your counter — don't take offence," he said. "I'm bringing you an *opportunity to reinvent yourself.* The whole country talks about reinventing itself, doesn't it? Well, here we come with something concrete."
+
+He stepped one pace into the workshop without asking.
+
+"Look," he explained. "The situation is this: they're squeezing you from every direction. Council, union, government. They're going to end up shutting you down, stripping the place of its signs. I, on the other hand, need small workshops to make specific, discreet things. Parts, compartments, modifications. You have machines, knowledge, location. You could be—" he searched for the word "—an *integrated supplier.*"
+
+Mauro looked at him as if he were speaking a foreign language.
+
+"Supplier of what?" he asked.
+
+"Of the logistics you already know about," said the Boss. "You wouldn't have to touch the product. You just make what we need: false floors, frames, special drawers, brackets. We put up the money, you put up the workshop. On paper, you're still 'Grieta's Workshop.' In practice, you're part of something bigger."
+
+He made a broad gesture.
+
+"And in passing, we 'protect' you," he added. "If the council wants to shut you down, we talk to the right people. If the union gets heavy, we know who to call. If the government wants to show results, we offer them a worse workshop than yours to shut down on television. Everyone wins. Especially you — you stop being the poor little one of the system and become a partner in something serious."
+
+The word *partner* hung in the air.
+
+---
+
+Estanislao, a few metres away, felt his stomach close.
+
+He knew what it meant: if Mauro accepted, the workshop would stay open, with more work, fewer forms — and a different kind of risk.
+
+Mauro set his jaw.
+
+"I'm not a partner to anyone who makes things worse for this neighbourhood than they already are," he said. "And I don't want my workshop to be one more hole in your chain."
+
+The Boss nodded, as if he had anticipated the answer.
+
+"I knew you'd give me the ethical speech," he said. "I respect you, genuinely. But let me tell you something that might help you sleep: *this is already happening here, with or without you.*"
+
+He gestured vaguely towards the main road.
+
+"Drugs don't come into the neighbourhood because we're particularly creative," he explained. "They come in because there are officials who look the other way, police chiefs who take their share, union people who use our favours to squeeze others, and people in the government who need 'hot zones' to make politics. We are the visible part. They are the carpet."
+
+He moved a little closer.
+
+"You, on the other hand, are a detail," he continued. "If you work with us, you have breathing room. If you don't work with us, the State or the union will strangle you. Not because you're bad — but because *you are a bad example:* someone who proves you can try a different path."
+
+Mauro breathed through his nose, heavily.
+
+"I'd rather go under than be part of that chain," he said.
+
+The Boss clicked his tongue, as if disappointed.
+
+"I admire you, I swear," he replied. "But I'm warning you: what you call 'going under' is not going to be quiet. In this neighbourhood everything is watched. If you say no and things go badly for you, they'll say: 'See? The one who sets himself apart ends up like that. Better to stay as we are.' Your fall is useful to a lot of people."
+
+He turned towards the car.
+
+"Anyway, I'm not giving you an ultimatum right now," he added. "Think about it for two days. Then I'll be back."
+
+He got in the car without saying goodbye. The car pulled away slowly, as always, without haste.
+
+---
+
+That night, Mauro barely spoke.
+
+In the workshop, as they put the tools away, he said one thing only:
+
+"I am not going to work for them," he stated. "If I have to close, I close. But I don't close my head."
+
+Estanislao nodded, but fear was vibrating in his arms.
+
+He knew that in that world, *saying no* had consequences. And that this time it was not merely a private no. It was a no in front of the neighbourhood.
+
+---
+
+The two days passed under a strange weight.
+
+The council sent an email reminding them the deadline on the notice was expiring.
+
+Omar, from the union, sent a "friendly" voice message reminding them he could "help" find a place for Estanislao in a "proper" factory.
+
+An acquaintance mentioned that "those above" already had a list of workshops "resistant" to the pact.
+
+And the black car did not appear.
+
+That was almost worse.
+
+---
+
+On the night of the third day, the neighbourhood filled with noise without warning.
+
+It was one of those moonless nights where the stars were lost behind the orange glow of the city. The air was still, heavy, with that tense silence that sometimes precedes summer storms — even though it was winter.
+
+A sharp braking — the screech of tyres on broken asphalt. Short shouts — men's voices overlapping. A dry crack, different from fireworks — deeper, more final.
+
+Estanislao was on his way back from *La Escalera*, notebook in his bag, when he heard the shouts.
+
+"It was at Grieta's place!"
+
+"Someone call someone!"
+
+"Don't touch anything!"
+
+He ran.
+
+The workshop door was ajar. One of the hinges hung twisted.
+
+Inside: lights on, a tool on the floor, a chair overturned. And on the ground, face up — Mauro.
+
+The shot had been clean and brutal. A single hole. Blood spreading like an impossible map across the floor.
+
+Someone, trembling, had thrown a canvas sheet half over him, barely covering the torso.
+
+Estanislao froze in the doorway.
+
+He did not cry. He did not shout. He did not throw himself down beside him.
+
+He simply understood, in one go, three things:
+
+It had not been a robbery.
+
+It had not been a stray bullet.
+
+It was not only a message for him.
+
+It was a message for *everyone.*
+
+---
+
+The neighbourhood reacted the way it always does: halfway.
+
+"Poor Mauro," people said. "A hothead, but a good man. He must have got mixed up in something odd. In this country, if you don't fall in line, these things happen to you."
+
+"Poor people at the factory too," added another. "At least they've got a union. Imagine if everyone acted like him."
+
+"Poor Estanislao now," concluded a neighbour. "Where's he going to work? Hopefully the union picks him up, or the council puts him on a programme. He's a smart kid, but he doesn't know how to play this game."
+
+The young ones watched in silence. The adults delivered their conclusions like proverbs:
+
+*"See? The one who sets himself apart ends up under a sheet."*
+
+The message was not subtle. It was pedagogical.
+
+---
+
+The police arrived late. They did what they always do: yellow tape, photographs, a few notes, promises to investigate.
+
+A young officer murmured to another, thinking no one was listening:
+
+"Another one who thought he could be an entrepreneur in the wrong neighbourhood. Next time, go to the council office and ask for a welfare programme."
+
+One of the senior officers, meanwhile, spoke with the Boss separately, a few metres away, making no effort to hide it. They shook hands. They said things in each other's ears. Nobody made an official note of it.
+
+---
+
+That same night, when Estani got home, his phone vibrated.
+
+Message from an unknown number:
+
+*"What happened to Mauro was a shame. He had character. We don't want the same to happen to you. We'll talk tomorrow. It's in your interest."*
+
+No signature — but none was needed.
+
+---
+
+The next day, at the corner, the black car was waiting. Just for him. Nobody else.
+
+The Boss was resting his elbow on the open window.
+
+"Last night was ugly," he said, with something close to a genuine tone of condolence. "I swear, if Mauro had stayed quiet it wouldn't have been necessary. But he set himself up as the village schoolteacher — he wanted to give the neighbourhood a lesson. And the neighbourhood has to understand that all roads go through the same toll booths."
+
+Estanislao felt nauseous.
+
+"They killed him for saying no to you," he said, his voice steadier than he felt.
+
+The Boss looked at him calmly.
+
+"They killed him for saying no to me *in this context,*" he corrected. "With the council, the union, the government and everyone watching. They couldn't leave him looking like a hero. They had to leave him as a warning."
+
+He held the look.
+
+"I'm not going to decorate things for you," he continued. "This wasn't just a personal matter. It was a message to the whole neighbourhood: *'the one who steps off script ends up like that.'*"
+
+He paused.
+
+"And you, Estanislao," he added, "are now in the most difficult position: you are the disciple of the bad example."
+
+He settled back in the seat.
+
+"So here is the offer," he said. "You have no workshop, no backing — they'll take the mate cup away from you at *La Escalera* if they have to. The union people have already said they'll place you 'better' in a factory. The council wants you as an example of a 'successful reinsertion.' We offer you what you already know: routes, logistics, money, protection. And we don't work alone. Even if nobody says it out loud, the union knows which way the goods travel, the council knows who not to stop when they cordon off a street, and those above know which neighbourhoods it pays to have 'alternative activities' in — it justifies a bigger budget."
+
+He gave a slight smile.
+
+"It's not just the black car, kid," he said. "It's the whole system. We're the visible part."
+
+---
+
+For the first time, Estanislao felt something resembling genuine vertigo.
+
+He looked around and saw no easy way out.
+
+Mauro was dead.
+
+The workshop, closeable at any moment.
+
+His family, frightened, pushing him towards "something safe."
+
+The union, offering him a "serious" path.
+
+The council and government, ready to use him as an example if he gave in.
+
+The black car, reminding him that *nobody plays alone.*
+
+"I don't want to work for you," he said, his mouth dry. "But I also don't want to be the State's mascot or the union's banner. I don't want to be anyone's *official poor little one.*"
+
+The Boss looked at him with a certain curiosity.
+
+"Then you'll have to invent something this neighbourhood doesn't know," he replied. "Something they don't teach on television, in politics, or on the corner. Something I'm not sure even exists."
+
+He opened the passenger door.
+
+"Get in," he said. "Not for a run. So you can see from close up how the map works. If you're going to be the lunatic who writes about the Theory of the Poor Little One, at least know properly what you're talking about."
+
+Estanislao stood still.
+
+He knew that if he got in, he risked not being able to get out again. He knew that if he didn't get in, he had no idea how he was going to survive.
+
+But he also knew this: they had already placed him at the centre of the neighbourhood's lesson. Whatever he did, everyone was going to be watching.
+
+He breathed deeply.
+
+He did not know if he was getting in out of fear, out of curiosity, out of survival instinct — or because, in some deeper part of himself, he sensed that understanding the monster from the inside was going to be part of the book he had already begun to write.
+
+He took hold of the handle.
+
+And he got in.

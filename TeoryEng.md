@@ -5704,3 +5704,163 @@ Not as theory. As habit. As a lifeline.
 **READ. IMAGINE. UNDERSTAND. LEAVE.**
 
 Even one at a time. Even slowly. Even with fear.
+
+---
+
+## Chapter 27 – *After the Shot*
+
+At first it was just that: after the shot.
+
+Days in hospital, check-ups, his mother repeating "poor baby, my boy," friends turning up with funeral faces even though he was still alive.
+
+Then came the house. The familiar sounds — the creak of the corrugated-iron door, the neighbour's dog barking, his grandmother's radio — but loaded with something else, a new weight that wouldn't lift. The usual smell of kerosene, but mixed with the smell of clean bandages and painkillers.
+
+The first months were about surviving: dressings, paperwork, finding the right words to sidestep questions ("was it because of the book?", "did you get mixed up in something?"), arguments with his mother about whether to keep going to La Escalera, arguments with himself about whether to keep writing.
+
+Mauro's workshop stayed shut, a silent reminder. The stain on the floor where he had fallen, covered with a tarpaulin nobody dared lift. The safety notices peeling in the sun and rain, as if time wanted to erase what had happened.
+
+The neighbourhood, once the opening comments and the first few days of muttering had passed, went back to normal: the same faces, the same corners, the same resignation.
+
+"See, the kid got out of it in the end," they said at the greengrocer's, at the bar, in the soup-kitchen queue. "Hopefully he's learnt his lesson. Playing clever isn't for the likes of us. That's for other people."
+
+---
+
+One day in June, while tidying his room that smelled of damp and medicine, Estanislao opened out of habit the drawer where he kept the notebook.
+
+The drawer had swollen with the winter damp, and it creaked when he pulled it open.
+
+But this time, alongside the notebook with its worn covers and yellowed pages, there was another pile: books Julián had left him before he died — some with Julián's slanted handwriting in the margins, others with pages marked by little coloured slips of paper.
+
+He went through them one by one, with the care of someone handling something sacred.
+
+The covers smelled of old paper and libraries. The pages were full of underlinings, question marks, exclamation points.
+
+In nearly all of them, at some point, there was a note along the lines of:
+
+*"Don't believe everything it says, but think about it." "Watch out — there's elegant poor-little-one-ism here too." "This would do some of your classmates good."*
+
+He realised that without meaning to, he had something more than reading material: he had a tool.
+
+Not a plan. Not a party. A habit: reading.
+
+And another: writing.
+
+---
+
+He went back to La Escalera in August, when winter was beginning to ease but the cold still got into your bones.
+
+The first few days, the kids looked at him differently. No longer just as a classmate or a helper. Also as the one who "nearly got killed."
+
+It made him uncomfortable. He could feel gazes drilling into his back when he turned around, whispers cutting off when he walked into the room.
+
+"I'm not a hero," he repeated. "I'm a guy who got shot and still owes the rent."
+
+One afternoon in early spring, when the sun was already giving a little more warmth, one of the new kids said to him:
+
+"Sir, I read your book. The one that's been going round."
+
+Estanislao froze.
+
+"I'm not a sir," he answered, by reflex.
+
+The kid smiled. He had uneven teeth and bright eyes, full of something Estanislao recognised: the hunger to understand.
+
+"Whatever you are, then," he said. "What I mean is, some things in it really got me worked up, but I also realised I've always talked to myself like I was a poor little one. 'Poor me, I was born here, I'll never get out.' I want to be angry at you, but I also want to be angry at myself."
+
+He held out a notebook. It was one of the cheap ones, with a soft cardboard cover and yellowed pages, but it was full of cramped handwriting.
+
+On the cover it said:
+
+*"The Theory of the Plan — Draft."*
+
+"And this?" asked Estanislao.
+
+"I started it after reading yours," said the kid. "It's not the same. It's a different subject. It's about how we use the plan to avoid moving. It's badly written, but… I'm trying."
+
+Estanislao was quiet for a few seconds.
+
+Something inside him was trembling a little, but not from fear.
+
+There it was, in the flesh, what he had written in theory:
+
+**READ → IMAGINE → UNDERSTAND → DO SOMETHING.**
+
+Not a heroic act. A notebook.
+
+---
+
+That night, at the La Escalera team meeting, he spoke. The room was full of the smell of cheap coffee and the cigarettes somebody was smoking at the door.
+
+"I can't run this place," he said, looking everyone in the eye. "I'm not a teacher and I don't have the patience for everyone. I spend all my time thinking about writing, not about teaching."
+
+They laughed. El Negro threw a biscuit at him that he dodged.
+
+"But I can do one concrete thing: set up a fixed, small space where anyone who wants to can come to read and write. Without us telling them what to think, but without leaving them alone with their anger."
+
+Lucas asked:
+
+"A writing workshop?"
+
+Estanislao shook his head.
+
+"No," he said. "A table. Books in the middle, notebooks on the side. We sit down, we read ten pages of whatever, then everyone writes at least half a page. Doesn't matter if it's theory, a letter, a rap, a list of things that piss them off. The point isn't to write well. The point is to get used to *not swallowing everything in silence.*"
+
+There were doubts, jokes, wisecracks. Someone asked if they had to bring a mate flask.
+
+But they tried it. They had nothing to lose.
+
+---
+
+The first sessions were awkward, the way everything new is when you're not sure how it's going to turn out.
+
+They met in the courtyard of La Escalera when the weather was good, or inside when it rained. The smell of damp mixed with coffee and old books.
+
+Some kids picked up books just to make noise and mess around, tossing them to each other like balls. Others opened them properly, read two lines and drifted off staring at the ceiling, as if the words came in too slowly. Some wrote two lines and stalled, pen hanging in the air as if the next word had escaped.
+
+Estanislao didn't give lessons. He just asked questions:
+
+"Which sentence bothered you?" "Which part doesn't add up for you?" "What thing you read today reminds you of something you've seen at home?"
+
+Then he told them to write.
+
+Sometimes the result was a mess. Sometimes a single line was worth more than all the rest.
+
+One girl, for example, wrote:
+
+*"They always told me, 'poor thing, you're too sensitive for this reality.' Maybe reality is too cowardly for my sensitivity."*
+
+One boy put:
+
+*"Poor little me, they say. Poor them if I ever wake up."*
+
+They weren't finished chapters. They were sparks.
+
+But he recognised those sparks. He knew where they came from.
+
+---
+
+At home, things were not easy. They never had been, but now there was a new tension, a fear that floated in the air like the smell of damp.
+
+His mother was still frightened. She stayed awake until he got home, watching out of the window every time a car went by.
+
+"I want you to be safe," she would say, her eyes full of something she couldn't bring herself to name. "I don't want to see you in a hospital bed with wires again. I don't want to go through that again, Estani."
+
+His grandmother, between prayers and the rosary passing through her wrinkled fingers, sometimes let slip:
+
+"Poor thing, as clever as he is, and in this shit country…"
+
+Estanislao, tired but steady, would gently correct her, even knowing it was a fight he wasn't going to win:
+
+"I'm not a poor thing, Gran. I'm in a rough spot, which is different. But I'm not broken. Not yet."
+
+Some nights, when everyone was asleep and the house filled with his grandmother's snoring and the creak of the roof sheets, he would stay up reading aloud by lamplight. Not to memorise, but to *untangle* what the day had tied into knots in his head.
+
+Outside, dogs barked at nothing and a car would go by with the music loud. Inside, the pages of the books made a soft sound, like dry leaves.
+
+He was still afraid. He wasn't stupid: he knew they could come looking for him again. He was still broke. Mauro's workshop was shut and he lived on odd jobs. He still had no workshop of his own. No qualifications. Nothing that the people at the top would consider valuable.
+
+But for the first time, he felt that he was *not defenceless on the inside*.
+
+He had words. He had books. He had other people's notebooks.
+
+And that, he had learned, was harder to shut down than a workshop.

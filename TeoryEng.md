@@ -5864,3 +5864,320 @@ But for the first time, he felt that he was *not defenceless on the inside*.
 He had words. He had books. He had other people's notebooks.
 
 And that, he had learned, was harder to shut down than a workshop.
+
+
+---
+
+## Chapter 28 – *The Small Way Out*
+
+One year after the shot.
+
+It was October again. The same month everything had started to fall apart. But now the air carried a different smell: early jasmine and earth dampened by the first spring rains.
+
+Estanislao walked through the neighbourhood with the scar pulling beneath his shirt. It no longer hurt the way it used to — the doctor had told him that was normal, that nerves adjust — but every time the cold south wind caught him in the ribs, he felt that dull stab reminding him he was still alive.
+
+A year. Three hundred and sixty-five days since the Boss had put a bullet in his body. Since Mauro had been found on the workshop floor. Since Julián had stopped breathing in a flat nobody wanted to rent afterwards.
+
+The neighbourhood was the same and different.
+
+The same in what you saw from outside: the same potholes where rainwater pooled into brown puddles, the same cables hanging like cobwebs between crooked posts nobody ever straightened, the same packed buses smelling of sweat and exhaust, the same queues at the community soup kitchen where his mother still worked with hands cracked from endless dishwashing.
+
+Estanislao's house had the same damp creeping up the walls as if trying to swallow them, the same kerosene smell from his grandmother's stove every morning, the same lopsided television still broadcasting the same news about the same poor little ones.
+
+Outside, the stray dogs still rummaged through rubbish bags. Don Roque's corner shop still gave credit to those who couldn't pay. The corner where Mauro had been killed was still marked by a wooden cross someone had painted sky-blue and white.
+
+And yet something had changed.
+
+Small changes. Invisible to anyone who didn't know how to look. Changes that hid in kitchen conversations, in notebooks opened at midnight, in glances that no longer dropped to the floor when someone asked "and what are you going to be?"
+
+---
+
+Two kids had enrolled in a technical course.
+
+Ernesto, the greengrocer's son — the same one who had paid Mauro in instalments of apples and carrots — had started studying electrical installation. He came to La Escalera every Friday with grease-stained fingers and a notebook full of circuit diagrams. He said he wanted to set up his own workshop, like Mauro.
+
+"I don't want to depend on anyone," he told Estanislao one sunny afternoon while they drank mate in the courtyard with its broken mosaic tiles. "Not the state, not the crooks, not the businessmen who squeeze you dry and then cry poor when things go wrong. I want to do something with my hands and get paid for it. Clean money. Like old Mauro used to say."
+
+Estanislao nodded. He remembered Mauro's hands: thick, with calluses and scars, with that crooked finger he'd never had fixed because "there's no time for nonsense." Hands that made things. Hands that produced.
+
+The other was Tomás, a kid from a family where nobody had finished secondary school. His father drank on the corner and his mother cleaned houses in the city centre to pay the bills. But Tomás had enrolled in a public graphic design course. He had got hold of a second-hand computer — screen cracked in one corner, keys worn smooth — and had started making signs for the neighbourhood shops, charging little, but charging.
+
+"My mum says I'm a dreamer," he said, showing a logo he'd made for the local hairdresser. "But I tell her: dreaming is free, Mum. Giving up is what costs you."
+
+---
+
+A girl started writing rap lyrics.
+
+Her name was Carla. She was seventeen, her hair dyed violet — with black roots because she couldn't afford to touch them up — and she kept a notebook full of verses that mixed what happened on the corner with lines from books she had read at La Escalera.
+
+Estanislao had watched her arrive at the reading sessions with her eyes painted black and an air of "I don't care about anything" that hid a fierce curiosity. At first she didn't speak. She just listened, sitting in a corner with her headphones hanging round her neck. But after a few months she started bringing her lyrics.
+
+One of them said:
+
+*"They call me a poor thing, they want me quiet,*
+*but I read books and my gaze is set*
+*on a future nobody painted for me,*
+*a map that I drew myself with my own pencil.*
+*Don't sell me stories of eternal victims,*
+*because with my words I open my own doors.*
+*And if the system wants me to stay put,*
+*I'll answer it back, rhyming in this notebook."*
+
+She had started singing at neighbourhood get-togethers, on corners where before you only heard cumbia from cheap speakers. Some people laughed — "look at this girl with her little verses." Others listened closely, with the look of someone recognising something true.
+
+"I don't care if they don't like it," Carla would say, eyes bright, chin raised. "What matters is that I'm saying what I think. That's already a lot. Before, I didn't even know I could have thoughts of my own."
+
+---
+
+One mother stopped calling her son "poor thing."
+
+She was Marta, the neighbour three houses down — the one who always hung her washing on the rusty wire in her yard and shouted at the dogs that wandered onto her plot. She had a teenage son who kept failing at school, a skinny fifteen-year-old with a sleepy face who dragged his feet when he walked.
+
+Estanislao had heard the scene a thousand times from his own house: Marta calling him to eat, her complaints about his grades, the boy's silence, never answering back.
+
+Before, every time the boy failed, Marta would say: "Poor thing, with the school we've got, what are you going to learn? Poor thing, the teachers never even show up. Poor thing, there aren't even books in the library."
+
+The boy would hear that and look at the floor. It was as if she were confirming there was no point in trying.
+
+After reading Estanislao's book — which Lucas had lent her one Sunday while they waited in the soup-kitchen queue — Marta stopped saying that.
+
+"Now I say to him: 'What are you going to do differently next time?'" she said one afternoon, pegging sheets on the wire while the south wind made them flap like flags. "I don't treat him as if he's incapable. I treat him as if he can learn. As if it's up to him."
+
+The boy still failed sometimes. But something had changed in his eyes. He no longer dropped his gaze when people asked what he wanted to be when he grew up. Now he said "I don't know yet" instead of "what's the point of asking me." And that "yet" was a world of difference.
+
+---
+
+It was not a revolution. Estanislao knew that.
+
+He hadn't brought the government down, hadn't shut the corrupt companies, hadn't dismantled the criminal network. The monster's map was still intact. The four circles were still interlocked.
+
+But something was different.
+
+It was a seepage.
+
+Like the water that gets in through a crack in the roof: it doesn't bring the house down, but it gradually soaks things. It changes the temperature. It makes you realise there's a problem.
+
+---
+
+One October afternoon, as the sun began to turn orange and the cicadas screamed from the paradise trees in the square, Estanislao sat down on the pavement outside Mauro's shuttered workshop.
+
+The enforcement notice was still pasted on the corrugated-iron door, bleached by the sun until it was almost unreadable. The tools had been sold to pay debts — Mauro's widow needed to eat. The welding machine, the one Mauro had cared for so much, the one he had taught Estanislao to use with such patience, had ended up in the hands of some man from the city centre who didn't even know what each nozzle was for.
+
+Estanislao sat on the kerb, legs stretched out, back against the hollow-brick wall. The smell of the workshop was still there, mixed with the dust: hot metal, sawdust, machine oil. Or perhaps it was his memory that smelled.
+
+He looked at the closed door, the rusted padlock nobody had opened in months, the dirty tarpaulin covering the broken window. And he felt the weight of everything they hadn't been able to save.
+
+He opened the notebook — the same one he had started three years ago, now thick with written and folded pages — and wrote:
+
+*"We couldn't save the workshop. We couldn't save Mauro. We couldn't save Julián.*
+
+*What we could do was not hand them our heads entirely.*
+
+*What we could do was keep reading when they told us reading was for useless people. What we could do was keep thinking when they told us thinking was for traitors. What we could do was keep talking when they shot us to silence us."*
+
+He paused. The afternoon sun fell at a slant across the dirt road, gilding the tin roofs and drawing long shadows on the pavements. A group of children played football on the corner, shouting imaginary goals. A neighbour dragged an empty shopping trolley. A dog barked at a passing bus that raised a cloud of dust.
+
+It was the same neighbourhood as always. But it no longer felt the same.
+
+He kept writing:
+
+*"These years I learned that getting out doesn't mean leaving the neighbourhood, or getting rich, or winning every battle.*
+
+*Getting out is this:*
+*– stopping talking to myself like a poor little one,*
+*– stopping waiting for someone to adopt me,*
+*– and using what I know — even if it's little — so that someone else can see a bit more clearly.*
+
+*Getting out is small. It's minimal. It's almost invisible.*
+
+*But it's all I have."*
+
+---
+
+That night, before turning out the light, he wrote the last page:
+
+*"If someone asks me one day how you get out of the land of the poor little one, I won't talk to them first about parties, or companies, or heroes.*
+
+*I'll put a book in their hand, I'll give them a notebook, and I'll say:*
+
+*'Read something nobody handed you as a gift, imagine you can be more than the character they cast you in, try to understand who gains from the fact that you don't, and then, even if it's just a little, move out of your place.*
+
+*Everything else, if it comes, comes after.'*
+
+*I don't know if this is a theory. I don't know if it's a method. I don't know if it works.*
+
+*What I know is that it pulled me out of a pit. And if it pulled me out, it can pull out someone else.*
+
+*And if it pulls out someone else, it can pull out one more.*
+
+*Like that, little by little, one by one, until the story of the poor little one has so many cracks it can no longer hold together."*
+
+---
+
+The neighbourhood kept going. The middle class kept going. The upper class kept going.
+
+The pact of the poor little ones kept going too: the state promising things, companies crying for subsidies, unions negotiating their quotas, crime offering shortcuts.
+
+Everything kept working the way it always had.
+
+But now, somewhere in each layer, there was at least one person with an open book and a started notebook, thinking thoughts nobody else had written for them.
+
+One person who had stopped talking to themselves as a poor little one.
+
+One person who had started to imagine something different.
+
+One person who was making, at least, a small move.
+
+And as long as that existed, however weak it was, however invisible it seemed, the Theory of the Poor Little One would never be entirely safe.
+
+Because theories, however powerful they are, fall apart when people stop believing in them.
+
+And someone, somewhere in San Aurelio, had stopped believing.
+
+---
+
+**THE END**
+
+---
+
+## Appendix – *The Censored Chapter*
+
+### Author's Note
+
+This chapter was withdrawn from the first editions under direct pressure from the Provincial Governor and officials close to the President. They claimed it contained "defamatory information" and "unsubstantiated assertions" that could "affect social peace."
+
+The publishing house's lawyers received a letter signed by the Ministry of the Interior suggesting that publishing this material could "generate legal and other consequences." The letter was written on headed paper, with the national coat of arms embossed and gleaming. It was signed by an undersecretary whose name is not worth mentioning: there are dozens like him, interchangeable, always available to do the dirty work.
+
+Today, one year after those events, I have decided to include it as an appendix. Because censoring the truth does not make it disappear. It only makes it more urgent.
+
+What follows is exactly what they did not want you to read.
+
+— *E., from San Aurelio, with the scar still pulling when it gets cold.*
+
+---
+
+### The Censored Chapter – The Names of the Monster
+
+What nobody tells you is that the monster has names.
+
+I am not talking about metaphors. I am not talking about symbols or comfortable fictions. I am talking about signatures on documents, bank transfers with specific account numbers and dates, contracts signed in offices with air conditioning and imported carpets. I am talking about meetings that took place in real locations, with coffee served in porcelain cups and silk ties and perfumes that cost more than my mother's monthly wage.
+
+The monster has names. And the names have addresses.
+
+---
+
+The Governor is called [CENSORED BY COURT ORDER].
+
+I met him once. It was at the "inauguration" of a community centre that had been abandoned for three years — the same one where La Escalera now operates. It was a sweltering day, the kind where you start sweating the moment you step out of the shade. The air smelled of grilled sausages and uncollected rubbish.
+
+I watched him arrive in a motorcade of black cars with tinted windows. I watched him step out with a retinue of bodyguards who brushed people aside as if they were flies. I watched him smile for the cameras — that rehearsed smile of someone who has posed thousands of times — shake hands with the mechanical gesture of the professional politician, kiss the foreheads of babies he didn't know and would probably forget before reaching the car.
+
+I watched him promise "a dignified future for the poor little ones of our province." He used that word — *poor little ones* — with the ease of someone talking about pets or garden plants.
+
+What the television didn't show was what happened afterwards.
+
+When the cameras switched off — when the journalists packed their equipment and the outside-broadcast vans drove away with their satellite dishes — the Governor changed. I watched his face relax, a look of weariness and irritation returning that had not been there moments before. He took off his jacket, loosened his tie, murmured something to his secretary that made the bodyguards laugh.
+
+Then he got into an armoured SUV — not one of the black cars, but a more discreet one, with no visible number plates. I watched from the corner, pretending to wait for the bus with the other "poor little ones" from the neighbourhood.
+
+The SUV stopped outside a private building in the north of the city, the kind with an intercom and cameras on every corner, the kind where a single flat costs more than my entire street could pay in ten lifetimes.
+
+A man was waiting at the entrance. He wore an impeccable grey suit and a watch that glinted even from where I stood. I recognised him: he was [CENSORED BY COURT ORDER], the businessman who owned the Alborada Group, the same one who financed the ruling party's campaigns, the same one who appeared in charity gala photographs and business supplements smiling as if the world belonged to him.
+
+They embraced like old friends. They went in together.
+
+Two hours later, they came out. The businessman handed over an envelope — thick, the colour of brown craft paper, no visible identification. The Governor slipped it into the inside pocket of his jacket with the ease of someone pocketing a handkerchief.
+
+It was not the first time something like that had happened. But it was the first time I had seen it with my own eyes.
+
+---
+
+The President, for his part, knows perfectly well how the system he himself administers works.
+
+I know this because Julián showed me documents.
+
+Julián, before he died, had spent years gathering evidence: intercepted emails, minutes of private meetings that someone had leaked, recorded testimonies with distorted voices to protect the informants. All of it organised in brown cardboard folders, with handwritten labels, with dates and names underlined in yellow marker.
+
+He had kept it in a wardrobe in his flat, behind stacks of old books nobody would think to look through. "If anything happens to me," he told me once, with a calm that chilled my blood, "look behind the Marx and the Arendt. Everything's there."
+
+One of those folders was titled: *"Project Poor Little One."*
+
+I saw it with my own eyes. I touched it. I felt the weight of the papers. I smelled the old ink and the accumulated dust.
+
+Inside was an internal memorandum, dated three years before the last elections. It was printed on official paper, with the party logo in the upper-left corner and a protocol number indicating it was a real document, not a forgery.
+
+It said, among other things:
+
+*"The communications strategy must reinforce the image of the voter as a victim of the previous system. It is essential that the target population feel that only the ruling party can protect them. To this end, it is recommended:*
+
+*1. Increase dependence on social programmes with personalised cards (control of vote and expenditure). 2. Discourage independent productive initiatives that might generate negative comparisons with the state model. 3. Maintain a constant narrative of 'external crisis' to justify the continuation of the assistance model. 4. Celebrate 'poor-little-one culture' as a positive national identity, linking it to party loyalty. 5. Use the network of territorial party operatives to detect and neutralise cases of 'informal economic autonomy' that might serve as a negative example."*
+
+The document carried the ruling party's logo. And a signature at the bottom — with the unmistakeable handwriting, with that large and pretentious stroke — that of the current President.
+
+---
+
+I am not making any of this up. Everything I write here was in Julián's folders.
+
+Folders which, curiously, vanished the night he was killed.
+
+The police arrived at three in the morning, they said. They found Julián on the living-room floor, with a bullet in his head and his hands marked by restraints. "Robbery resulting in death" was the official charge.
+
+But the neighbours said there had been no noise. That they hadn't heard anything. That they had only seen two black cars — no number plates, tinted windows — pass by half an hour before the patrol cars arrived.
+
+The police said they "found no relevant material" in his flat. That the wardrobe was empty. That there were no folders, no documents, nothing to indicate Julián was working on anything dangerous.
+
+But Lucas and I had seen those folders. Julián had shown them to us just two weeks earlier. He had explained what each document meant, where each piece of evidence came from.
+
+Someone had removed them before the forensics team arrived. Someone who had a key to the flat, who knew exactly where to look, who understood what was dangerous and what could be left behind.
+
+That someone was not an ordinary thief. They hadn't taken the television, or the computer, or the money in the drawer. Only the folders.
+
+It was someone who worked for the system.
+
+---
+
+Why am I telling this now?
+
+Because silence is complicity. And I already paid the price for speaking with a bullet in my side. The scar reminds me of it every morning when I get up, every night when I lie down, every time the winter cold passes through my body.
+
+If they eliminate me for publishing this chapter, at least it will be written. At least someone will read it. At least the truth will have a chance to circulate, to be copied, to pass from hand to hand like the books we used to read at La Escalera.
+
+And if they don't — if they decide I'm no longer worth the risk, that I'm just a neighbourhood kid nobody is going to listen to, that my voice is too small to matter — then something worse than my death will have won: the powerful person's contempt for the one who speaks from below.
+
+But that is also information. That is also learning.
+
+The monster doesn't only act by force. Sometimes it ignores. Sometimes it waits. Sometimes it lets you speak because it knows few people are listening, that small voices are lost in the noise of the world.
+
+My job is to make more people listen. Even one at a time. Even slowly. Even with this book you are reading right now.
+
+---
+
+### Author's Final Note
+
+This chapter was originally written as part of the novel's main body. It was withdrawn under pressure. Today I am returning it to its place.
+
+I have no physical proof of everything I assert — that proof was destroyed or stolen. I only have my word, my memory, and the testimony of those who can no longer speak.
+
+Julián died for saying these things from a position of privilege: from his university degree, from his upper-class surname, from his academic paper with citations and references.
+
+Mauro died for proving it from below: from his neighbourhood workshop, from his calloused hands, from his silent refusal to enter the system.
+
+I survived to tell it. I don't know why. Perhaps because my voice was too small to matter. Perhaps because they thought the bullet would silence me. Perhaps simply because I was lucky.
+
+But here I am. One year after the first shot. Writing what you are reading.
+
+If this reaches you, don't let it die.
+
+Pass it on. Copy it. Talk about it.
+
+Put it in a WhatsApp group. Read it aloud at a gathering. Leave it forgotten on a bus so someone else can find it.
+
+The truth doesn't die when it's written down. It dies when nobody reads it.
+
+Censorship works when people obey. And I decided to disobey.
+
+— *E., from San Aurelio*
+
+*P.S.: If you are reading this and you are one of those mentioned in these pages — with your name censored or without — I want you to know something: I am no longer afraid. They already shot me and I survived. I already lost those I cared about most. What more are they going to do to me? If they act, they will only confirm that everything I wrote is true. And this book will circulate faster than before.*
+
+*So go ahead. I'm waiting.*

@@ -5410,3 +5410,169 @@ But, for the first time, across all those levels, there existed the concrete pos
 *I don't need anyone to authorise me to stop being just a poor little one in someone else's story."*
 
 And that idea — more than the book, more than the gunshot, more than any speech — was the real crack in the Theory of the Poor Little One.
+
+---
+
+## Chapter 25 – *The Other Class Traitor*
+
+It was a Tuesday in February — one of those days when summer refuses to leave and the heat keeps bearing down like a threat.
+
+The air smelled of hot asphalt and rubbish the truck had never come to collect. Cicadas screamed from the paradise trees in the square, an insistent chorus that burrowed into the head like the hum of a fever.
+
+Estanislao arrived at La Escalera drenched in sweat, his shirt stuck to his body and his sandals rubbing the backs of his heels. He had walked the ten blocks from his house under a sun that showed no mercy, dodging puddles of stagnant water left over from the storm the week before.
+
+La Escalera's door was wide open, but inside the air wasn't moving. The ceiling fan — the same one as always, its blades yellowed with dust — turned slowly, shifting the heat from one side to the other without doing much good.
+
+Julián arrived differently that day.
+
+Not in his clothes, which were the same as always: a badly ironed shirt with sweat stains at the armpits, jeans worn through at the knees, old trainers that had long since lost their original colour. It was something in his face: a mixture of resolve and old exhaustion, like someone who hadn't slept in days while thinking through something they had finally decided to say.
+
+He waited until everyone was seated — the plastic chairs scraping against the concrete floor, the usual murmur of kids arriving late, the smell of reheated coffee drifting out of the kitchen — and instead of picking up the marker as he always did, he sat down too.
+
+The afternoon light came in at an angle through the dirty window, drawing a yellowish rectangle on the chipped mosaic floor. Outside, a dog was barking without conviction, as if the heat had taken away its will.
+
+"Today we're going to talk about something different," said Julián, in a voice that sounded unlike itself, deeper, as if the words cost him more than usual. "About me."
+
+The murmur was immediate. The kids looked at each other — some with expressions of surprise, others with that nervous curiosity you get when you can tell something important is coming. It was not like him to talk about himself. In all those months, Julián had been the one who listened, who asked questions, who put prompts on the blackboard for others to think about. But about his personal life, almost nothing.
+
+A fly buzzed near the fan, hitting against the blades each time they came round. The sound was tiny but constant, like a reminder that the world was still out there, indifferent to what was about to be said.
+
+"Many of you think I'm just another person from the neighbourhood," he continued, wiping the sweat from his forehead with the back of his hand. "That I was born here, that I've always been poor, that I've known the streets since I was a kid. There are things about that I learned later, walking these pavements, sitting in these chairs, listening to you. But I wasn't born here."
+
+A strange silence fell, dense as the heat floating in the air. Even the dog outside had stopped barking.
+
+"I was born a very long way from this place," he said, looking at the floor as if the words weighed something. "Not in another country. In another social class."
+
+He stood up and drew three circles on the blackboard:
+
+**LOWER – MIDDLE – UPPER**
+
+He pointed to himself, above UPPER. The marker squeaked against the white board, a sound that hung in the silence.
+
+"My family has money," he said, without softening it, looking them all in the eye for the first time since he had started speaking. "A lot. Estancias in the countryside, soy fields that stretch to the horizon, companies that employ hundreds of people, partners in banks where people like you don't even set foot, surnames that appear in the newspapers when there are important meetings with the Government. I was educated in expensive schools where the uniform cost more than a month's wages for most people here, I travelled as a child to places you've only seen in films, I had access to every book I ever wanted, in libraries that smelled of leather and polished wood. Everything that sounds like luxury to some people here… for me it was normal. It was the air I breathed."
+
+Estanislao watched him with a strange mixture of surprise and relief: at last he had put into words something that had been intuited, like when someone confirms a secret everyone suspected but no one dared to say out loud.
+
+Outside, the sun was beginning to set and the light coming through the window was turning more orange, softer. The heat was still there, but it was no longer so fierce.
+
+"And what are you doing here, then?" asked a girl from the back, without a filter, with that brutal honesty of people who have nothing to lose. She had her hair tied back in a messy ponytail and her eyes lined in black, as if the make-up were her armour.
+
+Julián smiled, but it wasn't a happy smile. It was the smile of someone who knows they are about to tell something that took years to understand.
+
+"Good question," he said, sitting on the edge of the desk, which creaked under his weight. "The short answer: I got tired of the poor-little-one story, upper-class version."
+
+He picked up the marker and wrote next to UPPER:
+
+*"POOR LITTLE ME, THE COUNTRY ISN'T GOOD ENOUGH FOR US."*
+
+"In my house they said this a lot," he explained. "'Poor us, we're efficient, educated, responsible… and this country full of lazy people, corrupt people, and poor little ones who don't understand how the world works.' I swallowed that story for years. I looked down with pity, sideways with contempt, and upward with obedience."
+
+He shrugged.
+
+"Until I started reading things that weren't in the libraries at my house," he said. "Stories written by people from below, from other countries, from other eras. People who didn't proclaim themselves either perfect victims or saviours. That's when my head started to break open."
+
+He looked at Estanislao.
+
+"The day I started coming to neighbourhoods like this one," he continued, "I didn't do it as a saviour. I did it because I needed to understand why — with all the money, all the State apparatus, all the unions, all the NGOs, and all the speeches — the country stayed the same or got worse."
+
+He leaned against the desk.
+
+"And I discovered something you already knew," he said. "That up above, in the middle, and down below, the poor-little-one story served to keep anything fundamental from changing."
+
+---
+
+"And your family?" someone asked. "Do they know you're here?"
+
+Julián laughed, without humour.
+
+"Some prefer not to see," he answered. "To them, I'm 'the odd son who does social work.' The one who 'went off to help the poor' like someone going on an exotic volunteer trip. As long as it doesn't cost them too much, they find it almost endearing."
+
+He took a breath.
+
+"But a few months ago," he said, "something changed: I wrote too."
+
+He took from his backpack a sheaf of printed pages, with the header of an academic journal.
+
+"This is a paper," he explained. "An article I published in a journal where people from my world write: economists, political scientists, sociologists, consultants, people who advise governments and companies."
+
+He read the title:
+
+*"The Theory of the Poor Little One as a Mechanism of Stability: How the State, Companies, Unions and Organised Crime Keep the Social Order in San Aurelio Unchanged."*
+
+The kids looked at him as if he were reading something in another language.
+
+"Don't worry about the fancy words," he said. "I'll translate it for you: it's the same map as in your book" — he pointed to Estanislao — "but told in the language of people in suits."
+
+He looked at the group.
+
+"In that paper," he continued, "I say things like: badly used protectionism kills competition; established unions close doors to new workers; large companies use the State to avoid having to improve; narco-traffickers co-ordinate with part of the political class; the middle class talks to itself as a poor little one when it doesn't get the position it thinks it deserves; and the upper class — mine — prefers for everything to stay the same, as long as it can keep saying 'poor little us, the country doesn't deserve us.'"
+
+He sat down again.
+
+"I published it with my full name," he said. "No initials. Signed."
+
+---
+
+"And what happened?" asked Estanislao, knowing nothing good was coming.
+
+Julián shrugged.
+
+"What happens when someone kicks the table over in their own house," he answered. "First they play the offended intellectual, then the personally uncomfortable, then the practically dangerous."
+
+He counted on his fingers:
+
+"First, indignant emails: 'your analysis is simplistic,' 'you don't appreciate the efforts of the national business sector,' 'you underestimate the importance of the welfare state,' 'you are serving interests you don't understand.'
+
+"Second, gentle phone calls: 'Julián, we love you, but you're going too far,' 'why expose yourself like this?', 'this is something you discuss in private, not publish.'
+
+"Third, tense meetings: with people from ministries, from chambers of commerce, from funds, from 'serious' foundations. All of them using one phrase that stuck with me: 'You can't give ammunition to ordinary people to misinterpret the complexity of the system.'"
+
+He made air-quotes.
+
+"'Ordinary people,'" he repeated. "At that point I knew I was no longer one of those from above, even if I had their surname."
+
+He was quiet for a moment.
+
+"And then," he added, "things started to happen that don't come with an official letter: projects that fall through, invitations that disappear, doors that close, rumours about me in places where I wasn't present."
+
+He looked at the group.
+
+"Until the same thing happened to me that happened to you, Estani," he said. "But differently."
+
+He put down the marker.
+
+"One day, after leaving a talk at a university, two men put me in a car," he recounted, without any embellishment. "They weren't from the neighbourhood. They weren't hiding. They smelled of expensive cologne, not of the street."
+
+The room went silent.
+
+"They didn't kill me that day," he went on. "But they made it clear they could make me disappear whenever they chose. That they knew where I went, who I talked to, how much I wrote. That my surname would not protect me if I set myself against all the pacts at once."
+
+He shrugged, as if playing down the drama.
+
+"After that," he said, "I made a decision: I'm not going to stop working here. I'm not going to stop reading. I'm not going to stop helping others write. But I do know one thing: my class no longer sees me. To the upper class, I'm a traitor. To many of you, at first, I was an infiltrator. Neither of those things matters to me as much as the fact that *you* keep on reading and writing."
+
+He stood up.
+
+"Because if I learned anything from all this mess," he concluded, "it's this:
+
+**THE ONLY WAY TO LEAVE THE ROLE THAT WAS WRITTEN FOR YOU IS BY READING AND THEN WRITING YOUR OWN.**"
+
+He wrote the phrase on the blackboard, in capitals:
+
+*"EXIT = READ + WRITE (IN ANY CLASS)."*
+
+He looked at each of them.
+
+"Nobody here is going to ask for a social class certificate before you're allowed to think," he said. "If you're from below, read — so you stop believing you're only a poor little one. If you're from the middle class, read — so you stop believing you're the eternal victim of the country. If you're from the top, read — so you stop believing you're a misunderstood poor little one abandoned by the barbarians below. And then write. A notebook, a paper, a note, a rap, a thread online. Anything. But without asking anyone's permission."
+
+Estanislao felt something closing and something else opening.
+
+The Theory of the Poor Little One was no longer just something that had come from his notebook. It was also the bridge that connected:
+
+the neighbourhood kid who writes with fear,
+
+the upper-class teacher who publishes a career-ending paper,
+
+and anyone who wanted to stop repeating someone else's story.
+
+What neither of them knew yet was how much longer Julián would last.

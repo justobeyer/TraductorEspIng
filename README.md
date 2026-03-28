@@ -8,7 +8,7 @@ Traduce Español Inglés
 | Archivo / File | Descripción |
 |---|---|
 | [`La Teoría del PobrecitoVersion80.docx`](La%20Teoría%20del%20PobrecitoVersion80.docx) | Original en español |
-| [`TeoryEng.md`](TeoryEng.md) | **Archivo de trabajo principal (Markdown)** — Prólogo, Capítulos 1–25 completos en inglés; capítulos siguientes se irán agregando uno por uno |
+| [`TeoryEng.md`](TeoryEng.md) | **Archivo de trabajo principal (Markdown)** — Prólogo, Capítulos 1–26 completos en inglés; capítulos siguientes se irán agregando uno por uno |
 | [`teoryEng.docx`](teoryEng.docx) | Traducción en formato Word — Título, Prólogo y Capítulo 1 en inglés |
 | [`The Theory of the Poor Little One - Prologue and Chapter 1.docx`](The%20Theory%20of%20the%20Poor%20Little%20One%20-%20Prologue%20and%20Chapter%201.docx) | Copia de la traducción inicial (referencia) |
 
@@ -41,4 +41,5 @@ Traduce Español Inglés
 - **Capítulo 23 / Chapter 23:** *La Última Versión* → *The Last Version*
 - **Capítulo 24 / Chapter 24:** *Pobrecito el que Habla* → *Poor Little One, the One Who Speaks*
 - **Capítulo 25 / Chapter 25:** *El Otro Traidor de Clase* → *The Other Class Traitor*
-- **Capítulo 26 y siguientes / Chapter 26 onwards:** pendiente de traducción *(próximamente)*
+- **Capítulo 26 / Chapter 26:** *Leer, Imaginar, Comprender, Salir* → *Read, Imagine, Understand, Leave*
+- **Capítulo 27 y siguientes / Chapter 27 onwards:** pendiente de traducción *(próximamente)*

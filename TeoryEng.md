@@ -5576,3 +5576,131 @@ the upper-class teacher who publishes a career-ending paper,
 and anyone who wanted to stop repeating someone else's story.
 
 What neither of them knew yet was how much longer Julián would last.
+
+---
+
+## Chapter 26 – *Read, Imagine, Understand, Leave*
+
+The morning smelled of old mud and reheated coffee. It had rained overnight and the dampness had stuck to the walls of La Escalera like a silent punishment. At the entrance, the sign reading "Talk today" hung crooked, held up by tape that had already stopped sticking properly.
+
+Estanislao arrived early without knowing why. Perhaps out of habit. Perhaps because when the world is on the verge of breaking, the body gets there first.
+
+Inside, there was no one. Only the ceiling fan making its usual sound and the smell of old paper from the books. In the kitchen, the kettle was cold. The mate, dead.
+
+He sat down anyway. And waited.
+
+The first human sound was the door slamming open.
+
+Lucas came in with his phone in his hand and a pale face, as if he had come running from a piece of news. He didn't say hello. No jokes. No "what's up?".
+
+He stood in front of Estanislao, swallowed, and spoke the way you speak when you don't know how to say it: "Sit up straight."
+
+Estanislao was already sitting, but he straightened up anyway, as if his body understood a blow was coming.
+
+Lucas showed him the screen.
+
+A post from a small news portal — one of those sites nobody admits to reading but that everyone in the neighbourhood ends up reading when things happen.
+
+The headline said: **"RESEARCHER CRITICAL OF SAN AURELIO'S POLITICAL AND UNION SYSTEM FOUND DEAD."**
+
+The photo was old. Julián at a conference, smiling that dry smile of his, as if it embarrassed him to look approachable.
+
+Estanislao felt the air grow heavy. "No…" he said, and the word came out on its own, addressed to nobody.
+
+Lucas scrolled. A secondary road. Far out. Hands marked. Signs of torture described in cold words. A final shot.
+
+"The police are saying 'all lines of inquiry,'" Lucas murmured. "Robbery. Crimes of passion. A settling of scores."
+
+Estanislao clenched his jaw. "Settling of scores with whom?" he asked, and he already knew the answer: with nobody. With everyone. With the nameless monster.
+
+He looked at the photo again, as if Julián's face might move and say "relax, it's a joke." It didn't move. It said nothing.
+
+There would be no class that day. There would never be one again.
+
+---
+
+By mid-morning, La Escalera filled with people. Kids walking in without knocking, as if the door were a shelter in wartime. Some with hard faces, others with wet eyes, others carrying a rage ready to pick a fight with whatever came near.
+
+"Who did it?" one asked. "Did they kill him over the paper?" a girl threw out. "Why did he get involved?" said another.
+
+Estanislao didn't answer. He couldn't.
+
+He kept staring at the blackboard. Still there, nearly erased by time and damp cloths, was the phrase Julián had written at the end of Chapter 22:
+
+*"EXIT = READ + WRITE (IN ANY CLASS)."*
+
+Estanislao felt a strange rage. Not against Julián. Against how easy it was for the world to keep turning even after it killed someone who had written what shouldn't be written.
+
+---
+
+In the neighbourhood, the news arrived the way all news arrives: mixed in with bread, with smoke, with routine.
+
+At the kiosk they said: "Poor bloke, the teacher. Got mixed up with the people upstairs."
+
+At the soup kitchen, a woman remarked: "Well… he was from money, wasn't he? Poor thing. Thought that because he had a surname he could say anything."
+
+On the midday television — the bar TV, with the volume up — a presenter said "lamentable," and two minutes later moved on to the next story.
+
+In an official communiqué, in tidy lettering, the usual phrase appeared: *"We deeply regret the loss of an intellectual committed to vulnerable sectors."*
+
+*Vulnerable.* The clean word. The word that serves to avoid saying "he pointed the finger at all of us."
+
+Nobody mentioned the paper. Nobody named the map. Nobody said "collusion," "pacts," "tolls," "monster."
+
+They were left with the decorative Julián: the one who "helped." Not with the dangerous Julián: the one who wrote.
+
+---
+
+In the afternoon, once the murmurs had thinned out and only the exhaustion remained, Estanislao stood up.
+
+He went to the blackboard and picked up the black marker. It smelled of cheap chemicals — that classroom smell that had always been there.
+
+Lucas watched him, asking without asking.
+
+Estanislao wrote below the old phrase, large, as if he needed to nail it into the wall so as not to forget it:
+
+**READ — IMAGINE — UNDERSTAND — LEAVE**
+
+A girl raised her hand, the way you do at school. "And what's that?" she asked, in a rough voice. "Another slogan?"
+
+Estanislao looked at her. She had a neighbourhood face: a mixture of exhaustion and hunger for meaning. "It's not a slogan," he said. "It's the only thing they couldn't shut down in Julián."
+
+A small, strange silence followed. The fan made its noise. A motorbike went past outside. Someone poured a mate.
+
+Estanislao continued, without going into teacher mode, without a long speech. Just one scene per word, as if the words were things you could touch:
+
+"Reading was what got him out of the house where they told him 'poor us, the country isn't good enough.' Got us out of 'poor you, it's not for the likes of you.'
+
+"Imagining was seeing yourself in a different life without asking permission from anyone.
+
+"Understanding was connecting the dots. Seeing why the person who competes is a problem. Seeing why the person who writes gets marked.
+
+"And leaving…" — he paused — "…leaving is a small move. One move. Whatever one you can manage. But your own."
+
+Lucas lowered his gaze, as if chewing on something.
+
+"What if you're scared?" someone asked.
+
+Estanislao didn't pretend to be brave. "It's scary," he said. "I'm scared. Julián was scared too. The difference is what you do with the fear."
+
+---
+
+That night, in his room, Estanislao opened the notebook.
+
+He wrote the news without embellishment: date, place, what the portal had said. Then he wrote what nobody was going to put in any communiqué: *"Julián didn't die so we could mourn him as a poor little one."*
+
+And further down, like leaving himself an order for when his body wanted to give in: *"If we stop reading and writing today, they win twice."*
+
+He stayed a long time staring at the page.
+
+Then, in smaller handwriting, he added something that embarrassed him — but he wrote it anyway: *"What bothers them most is not that someone from above comes down into the mud. What bothers them most is that someone from below raises up an idea."*
+
+He closed the notebook.
+
+Outside, the neighbourhood went on. Inside, something had shifted: if the system had killed Julián to make sure no method remained, the only dignified thing was to leave the method written down.
+
+Not as theory. As habit. As a lifeline.
+
+**READ. IMAGINE. UNDERSTAND. LEAVE.**
+
+Even one at a time. Even slowly. Even with fear.

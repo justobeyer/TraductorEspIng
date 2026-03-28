@@ -4917,3 +4917,230 @@ He did not know if he was getting in out of fear, out of curiosity, out of survi
 He took hold of the handle.
 
 And he got in.
+
+---
+
+## Chapter 22 – *The Monster's Map*
+
+It was a moonless October night, smelling of jasmine mixed with the smoke from the chorizo-sausage carts. The sky had that dense violet of early-spring evenings, when the heat begins to signal it is coming but has not fully arrived.
+
+The black car moved slowly through streets Estanislao knew by heart.
+
+The sodium streetlamps painted everything a sickly yellow. They passed Don Jorge's bakery (closed since March), the neighbourhood square (three drunks asleep on the benches), the corner where Mauro used to park his pickup.
+
+What was changing was not the footpaths — it was the way the Boss was pointing them out.
+
+The leather seat smelled of old tobacco and expensive cologne. The air conditioning blew softly, a brutal contrast with the sticky heat outside. Through the window, Estanislao watched his world go by as if from a spaceship.
+
+"Up to now you've seen pieces," the Boss said, elbow on the window frame. "The soup kitchen, the workshop, the union, the council, the neighbourhood. Tonight I'm going to show you how they connect. So you understand properly what you're talking about when you write 'Theory of the Poor Little One.'"
+
+He turned onto the main avenue. The road surface changed: no potholes here, the lane markings were painted, the traffic lights worked.
+
+"First stop: *the council.*"
+
+---
+
+The San Aurelio municipal building was a grey slab with ambitious columns and mirrored glass that reflected the neon signs of the shops opposite. People coming and going with folders; others leaning on the railing smoking; street vendors on the pavement selling milky coffee and croissants. The smell of river damp arrived mixed with the exhaust of buses passing every five minutes.
+
+The car did not stop — it barely slowed.
+
+"In there," said the Boss, "it's decided who exists on paper and who doesn't. If you turn up with your little workshop, all the correct paperwork but no godfather, they eat you alive with inspections. If you come in with the stamp of a friend, or if you're useful for a photo opportunity, they regularise you in two days."
+
+He indicated with a slight tilt of his head towards the side of the building, where a truck was unloading boxes in an area marked "Municipal Supplies."
+
+"See that?" he asked. "Half of it goes to soup kitchens, snack programmes, campaigns. The other half is distributed through politics, party fixers, invented 'emergencies.' And every so often a crate travels with something of ours mixed in. They know it, we know they know it. As long as the story stays 'poor little residents, look at everything we give them,' nobody asks too many questions."
+
+Estanislao looked at him sideways.
+
+"And if someone reports it?" he asked.
+
+The Boss laughed.
+
+"To whom?" he replied. "The police station answers to the mayor, the prosecutor's office eats from the same hand, the media live off the advertising budget. If something leaks, they immediately invent another 'poor little ones' story to bury it. It's not that you can't speak. It's that the cost of speaking is paid by the speaker, not the thief."
+
+---
+
+A few kilometres on, the large warehouses began to appear: the industrial zone.
+
+Neat sheds, giant company logos, guards at the entrance, banners.
+
+On the fence of one of the big metalworking plants, three signs hung:
+
+*"NO TO IRREGULAR WORKSHOPS."*
+*"NO TO THE IRRESPONSIBLE OPENING OF IMPORTS."*
+*"YES TO THE PROTECTION OF SAN-AURELIAN WORKERS."*
+
+The car stopped for a few seconds in front of them.
+
+"Second stop: *union + big companies,*" said the Boss. "Look at the slogans."
+
+He read them aloud, sardonically:
+
+"'No to irregular workshops.' That's you, and that was Mauro, to them. Everything that doesn't go through their collective agreement and their rules is 'irregular,' even if you pay better than many employers. Meanwhile, they have State contracts, protection, subsidies."
+
+He pointed at the second sign.
+
+"'No to the irresponsible opening of imports.' Translation: *no to competition.* Anything that comes from outside and forces them to improve or lower prices is 'irresponsible.' That's how they keep their business intact, century after century, crying like poor little ones every time a politician suggests opening the tiniest window."
+
+He sighed.
+
+"And the last one, 'yes to the protection of San-Aurelian workers,' closes the set," he explained. "It sounds patriotic, but what it protects is not the worker — it's the established companies and unions. Those who want to enter as new players, like you, are locked out. Those who could truly compete hit a wall of slogans."
+
+He leaned slightly towards the windscreen.
+
+"Do you know what all those 'NOs' have in common?" he asked. "They are designed so that *nothing changes in any real sense.* Not the way of working, not who is in charge, not who gets paid."
+
+---
+
+A little further on, in front of a union security post, a group of men in union jackets were having a barbecue.
+
+Chanting could be heard, laughter, drums.
+
+"Here you have the union in party mode," said the Boss. "All things considered, these are the ones who live best off the poor-little-one discourse: every time they win something, it's 'because the worker suffers so much.' And mind you, sometimes they win genuinely fair things. But the structure is not designed for the worker to become independent. It is designed so that the worker *always* depends on them negotiating on his behalf."
+
+He looked at Estani.
+
+"And when they need to put pressure on a company or a politician," he added, "do you know who puts the muscle on the street? People like us. Blockades, trouble, controlled chaos. Then in the news: 'Poor desperate workers.' Nobody signs the real invoice."
+
+---
+
+At a key intersection, the car slowed even more in front of a small police post.
+
+Two officers were leaning against the patrol car, smoking. One of them looked at the car and barely raised his chin. The Boss replied with the most minimal of gestures.
+
+No checkpoint. No questions.
+
+"Third stop: *security,*" he summarised. "Not all the cops are bought. But enough of them for those at the top and those at the bottom to understand each other. If the council wants a zone to stay 'quiet,' they let us know. If we want a route to be 'clean,' they look the other way. As long as we keep feeding the narrative that 'the police are fighting drug trafficking for our poor little young people,' the show goes on."
+
+Estanislao remembered the mandatory route he had been made to take earlier: no checkpoint, no curious patrol car.
+
+"That wasn't luck, was it?" he said.
+
+The Boss shook his head.
+
+"Coordination," he replied.
+
+---
+
+They turned into a neighbourhood of low, neat houses: middle class.
+
+On the corner, a social club with the lights on. Inside, an event: flags, microphone, an enormous banner:
+
+*"PLENARY IN DEFENCE OF NATIONAL LABOUR. NO TO IRREGULAR WORKSHOPS. NO TO THE DISMANTLING OF THE STATE."*
+
+The car passed slowly.
+
+"A full-cast plenary," commented the Boss. "In there you have union leaders, council members, an emissary from the government, owners of 'national and popular' enterprises. All repeating the same song: 'no to irregular workshops' = no to people like you appearing; 'no to opening up' = no to competing; 'no to dismantling the State' = no to their funding running out, the fund from which they all get paid."
+
+He settled back in the seat.
+
+"If you only listen to the words, it sounds like they're protecting the people," he said. "If you look at the results, what they're protecting is that *the distribution of power and money doesn't change.* The poor little ones are the excuse, not the goal."
+
+---
+
+Finally, the car climbed a street up to a bluff with a view over almost the entire city.
+
+The lights of San Aurelio flickering; the brighter patch of the Ríos plant; the main avenues like illuminated veins; dark patches where the street lighting failed.
+
+The Boss switched off the engine.
+
+"Why am I showing you all this?" he asked.
+
+Estanislao took a few seconds.
+
+"So I understand that the 'pact' exists to keep nothing in place," he said. "That when they say 'no to irregular workshops' they mean 'no to new players coming in to compete.' And when they say 'no to opening imports,' they mean 'no to anyone forcing us to improve.'"
+
+The Boss smiled, half proud, half sad.
+
+"You're getting it," he replied. "All that discourse of 'protecting national labour' rests on the Theory of the Poor Little One: 'poor little workers, poor little companies, poor little country, not ready to compete yet.' And in that name they squeeze the air out of those who *do* want to compete: new workshops, kids with ideas, entrepreneurs who aren't on anyone's list."
+
+He held his gaze.
+
+"That's where you and Mauro came in," he added. "You didn't fit. You weren't an exploitative irregular workshop. You weren't an old protected company. You weren't resigned kids on a welfare programme. And you weren't part of us, either. You were the square peg that doesn't fit any mould."
+
+He sighed.
+
+"When the pact appeared," he continued, "the system looked at the map and asked: 'Who is complicating the story?' And there was Mauro with his workshop. And right beside him, there was you."
+
+---
+
+"And you?" asked Estanislao. "Don't you want nothing to change either?"
+
+The Boss shrugged.
+
+"We want some things to change and others not to," he said. "We want poor zones to keep existing, because that's where we have the most work. We want politics to keep using security as a bargaining chip, because that's where they need us. We want unions that keep looking the other way as long as they preserve power. As long as none of that changes, our business continues. If one day the country gets genuinely serious, things get complicated for us."
+
+He looked at Estani with a half-smile.
+
+"In that we're the same as everyone else," he admitted. "Every sector has its 'no':
+— No to new workshops.
+— No to opening up.
+— No to changes that cost us our advantages.
+Everyone dresses it up as 'yes to the poor little one.'"
+
+---
+
+The wind was cold up there.
+
+Estanislao looked at the lit-up city and felt a tiredness that came from somewhere deeper than his body.
+
+"So if the whole thing is set up to keep nothing from changing…" he said, "what's the point of me writing anything? Who is going to care?"
+
+The Boss listened with unexpected attention.
+
+"Those who haven't fully bought the story yet," he replied. "Those who feel something off every time someone says 'poor little one' at them from a stage. Those who notice that something doesn't add up when they hear 'no to opening up' while they pay a fortune for shoddy goods. Those who saw someone like Mauro die and know, even if they don't say it, that it was not 'just another settling of scores.'"
+
+He paused.
+
+"And you," he added. "Because if you don't write it, everything you've seen is going to rot inside you, and one day you'll end up repeating the same old speech with a different badge."
+
+---
+
+"And why do *you* want me to understand it?" asked Estani. "Doesn't it suit you better for me to stay just one more person?"
+
+The Boss kept looking at the city.
+
+"Business changes," he said. "The map changes. Political roles change. The only thing that stays are the stories told about what happened. If all the stories are written by those who stand on the pact's stage, the country never changes. If one of them is written by someone like you, maybe, with time, someone will think twice before saying 'poor little one' so easily."
+
+He looked sideways at Estani.
+
+"And besides…" he added, "it also helps me to understand what those who don't fully buy any of the stories are thinking. It's not all about money. Sometimes you want to see the mirror of what you help to sustain."
+
+---
+
+That night, back in his room, Estanislao opened the notebook.
+
+On the *Theory of the Poor Little One* page, he added below the index:
+
+*"No to irregular workshops"* = No to new players coming in to compete.
+
+*"No to opening imports"* = No to anyone forcing us to improve.
+
+*"Pact for Those Who Have the Least"* = Pact between those who have the most so that nothing changes too much.
+
+And then he wrote:
+
+*"Everyone says it is to protect the poor little one:*
+*— the politician who does not want to open the economy,*
+*— the businessman who does not want competition,*
+*— the union that does not want to lose power,*
+*— the drug lord who does not want to lose his neighbourhood.*
+
+*If everything is done 'to protect us,'*
+*why are we the same or worse off?"*
+
+Below that, a phrase that came out more like a promise than an idea:
+
+*"Maybe I can't change anything. But at least I want it so that, the next time someone says 'poor little one' in my name, someone remembers that once, someone wrote that that story served, above all, to make sure nothing changed."*
+
+He closed the notebook.
+
+The monster was still intact. He was still afraid. But now, in addition, he had something the system did not fully control:
+
+a way of looking
+and a way of naming
+that did not docilely repeat
+the same old "NOs" as always
+dressed up as protection.
+
+"If this shot helps even one more person dare to write without asking permission from the middle class or the upper class," he added, "it will have been worth something."

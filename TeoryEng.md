@@ -5144,3 +5144,103 @@ the same old "NOs" as always
 dressed up as protection.
 
 "If this shot helps even one more person dare to write without asking permission from the middle class or the upper class," he added, "it will have been worth something."
+
+---
+
+## Chapter 23 – *The Last Version*
+
+Weeks went by. November arrived with furnace heat and storms that never broke: the sky would turn black, a couple of drops would fall, and then the sun would come back and fry everything.
+
+Mauro's workshop was emptied, sold, forgotten. The sign that read "IRONWORK AND CARPENTRY – HONEST WORK" disappeared one night. Nobody asked who took it down. Estanislao walked past one morning and found the shed empty — walls stained with damp where the tools used to hang, cement floor thick with dust and cigarette butts left by whoever had come to have a look.
+
+The smell of hot metal, sawdust, and the ever-present coffee was gone. Only the echo of what it had been remained.
+
+Estanislao kept going to La Escalera, but now with a different purpose. It was no longer just to learn. It was to process. He walked the ten blocks from his house with the notebook in his backpack, feeling the weight of everything he had seen in the past months.
+
+"You have to write," Lucas told him one afternoon, brewing mate in the courtyard of the community house. "Everything you know, everything you saw. If you don't write it, it disappears."
+
+The courtyard had peeling walls painted sky-blue, a scraggly lemon tree in the corner, and mismatched plastic chairs. The late-afternoon sun came in at an angle, painting gold rectangles on the broken-mosaic floor.
+
+"What for? Who is going to read it?"
+
+"I don't know. But worse is if it never exists."
+
+Estanislao started that same night, in his usual room: sunken mattress, a fan that squeaked, the smell of the grandmother's kerosene heater seeping under the door.
+
+He wrote in the same notebook as always — the hard-cover one his grandmother had given him three years ago so he could jot down "the important things." But now the loose jottings were beginning to connect. The phrases he had heard from Julián, the conversations with Mauro, the Boss's explanations. Everything was part of the same picture.
+
+The title came on its own: *"The Theory of the Poor Little One."*
+
+It was not an academic book. It was not a political pamphlet. It was something in between: a story told from the inside, with names changed and places recognisable.
+
+It explained how the system needed poor little ones to function. How it created them, how it kept them, how it rewarded those who stayed still and punished those who moved.
+
+It explained the three paths. It explained the monster's map. It explained why Mauro had had to die.
+
+And above all, it explained something nobody had told him directly but that he had worked out for himself: that *poor little one is not an economic condition. It is a state of mind.*
+
+You can be poor and not a poor little one. You can have money and be the most poor little one of all.
+
+Lucas read it first. Then some people from La Escalera. Then it began to pass from hand to hand.
+
+"This has to get out of here," said a young woman who was studying communications. "But if you publish it under your name, you're dead."
+
+"I know."
+
+"So?"
+
+"So let it circulate. No name. Let it belong to everyone."
+
+They printed the first copies at an old copy shop in the town centre, with machines that made a noise like battle and an owner with a grey moustache who asked no questions. Recycled cardboard covers, pages that smelled of fresh ink and cheap paper. One hundred copies. It cost three months' worth of casual-labour wages.
+
+They left them in bars (on the back tables where nobody looks), on buses (between the seats, where someone would find them by chance), in waiting rooms at public hospitals. Some turned up at universities, in union libraries. Others appeared in police stations — irony or provocation, nobody knew.
+
+Some people read it secretly, so as not to look like a show-off. Others criticised it without having read it. Others underlined it, discussed it, passed it from hand to hand like a secret.
+
+The black car found out, of course.
+
+One afternoon in December, with the sun beating hard on the asphalt and the air smelling of hot rubber, the Boss waited for him on the usual corner. Shirt open to the second button, immaculate white trainers, hair slicked back gleaming in the light.
+
+"Estanislao. You wrote things. We know. I don't have to tell you which things."
+
+"It's just a notebook."
+
+"It's a notebook that explains how everything works. And that is more dangerous than a weapon."
+
+The Boss looked towards the street, where a rubbish truck was passing and raising dust.
+
+"Are you going to kill me?"
+
+The Boss did not answer directly. He lit a cigarette, the smoke rising straight in the still air.
+
+"We haven't decided yet what to do with you. Some people say you're manageable. Some people say it's already too late. I say it depends on you."
+
+"On me?"
+
+"On whether you keep writing or shut up."
+
+Estanislao thought about Mauro, lying on the workshop floor with a hole in his forehead. About Julián, who still didn't know he would end up the same way. About all those who had tried to tell the truth and paid the price.
+
+"I'm not going to shut up."
+
+The Boss nodded, as if he already knew. He dropped the cigarette on the ground and crushed it with his foot.
+
+"Then get ready for what comes next."
+
+The bullet arrived one night in January, without warning.
+
+Not at the workshop — there was no workshop any more. It was on the street, on the way back from La Escalera at eleven at night. The sky was black, starless, smelling of rain that would not fall. The streetlamps flickered. A dog barked in the distance.
+
+A motorbike passed fast, the engine roaring like an animal, a dry shot that sounded like a short clap of thunder, and then silence.
+
+They found him lying on the pavement, conscious, breathing in short bursts, his hand pressing the spot on his side where blood was beginning to soak through his shirt.
+
+A bullet in the side. Not fatal, but precise. Surgical.
+
+The message was unmistakable: *the next one goes to the centre.*
+
+In the hospital, as the doctors stitched him up, Estanislao thought of something he had written weeks earlier:
+
+*"The system doesn't kill everyone who resists. Sometimes it leaves them alive so they can serve as an example of what happens to those who speak."*
+
+Now he was that example.

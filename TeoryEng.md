@@ -4128,3 +4128,267 @@ There were no guarantees that the path he and Mauro were on would end well. In f
 But if he accepted going back to the role of poor little one, or entering the role of the sharp operator, he knew exactly how it would end: just like everyone else.
 
 And something, growing stronger each day, told him he'd rather risk losing as an exception than "win" as part of the herd.
+
+---
+
+## Chapter 19 – *Two Debts*
+
+The week after the union visit and the black car was a tightrope.
+
+July had settled in with its dry cold and its grey sunsets that seemed to swallow the light before its time. The streets of the neighbourhood smelled of rubbish fires — someone was always burning something on the empty lots — and of reheated stew drifting through half-open windows.
+
+Estanislao walked to the workshop with his hands buried in his hoodie pockets, the collar of his jacket turned up against the wind blowing down from the avenue, carrying the smell of diesel and freshly baked bread from the Paraguayan's bakery.
+
+Mauro was doing sums constantly — crumpled pieces of paper covered in pencil calculations, instalments marked on a last year's supermarket calendar, taxes that never came down, costs of certified hard hats and new fire extinguishers they had been forced to buy.
+
+The workshop was quiet that morning. The only sounds were the hum of the fluorescent tube at the back — which flickered every so often as if coughing — and the persistent drip of a tap that never closed completely.
+
+Estanislao was pushing himself to get the pieces right, while *La Escalera* and his notebook were eating up his nights. He had started to dream about Julián's classes: words mixing with images of the black car, the inspector's face, the Boss's smile.
+
+One morning, while they were fitting the frame for the greengrocer's in the next neighbourhood — a structure of pipes and welds that had to hold crates of fruit and the weight of a canvas awning — Mauro said:
+
+"If we get paid for this on time, we cover the fire extinguisher, the rent, and half the electricity bill. If we land two more jobs like this one on top, we scrape through the month. Not a great plan, but at least it's a plan."
+
+He had grease on his hands and an unlit cigarette hanging from his lip — he had quit smoking two years ago but still chewed on the filters when he was nervous.
+
+Estanislao nodded, focused on the welding.
+
+For the first time in a long while, they had something that resembled a minimal foundation. Not much, but *theirs*.
+
+---
+
+At dusk, as Estani was pulling down the workshop shutter — the screech of metal on the rail was a sound he now recognised with his eyes closed — a motorbike he knew all too well appeared.
+
+The sky was streaked dirty orange on the river side and dark violet on the city-centre side. The street lights on the block were coming on one by one with that electric hum of old tubes. A dog was barking in some nearby yard, monotonously, as if barking out of habit.
+
+It wasn't the council bike. A light motorbike, noisy exhaust, two riders: one driving, the other in a hoodie with his face barely visible.
+
+It stopped almost touching him.
+
+"Get in for a second, Estani," said the one on the back, pulling down his hood. It was one of the lads from the early runs with the black car.
+
+"I can't," he replied. "We have a delivery tomorrow. I'm tight on time."
+
+The lad shook his head.
+
+"It's not an invitation," he said, flatly. "The Boss wants to talk to you. Says it's important. Better you come."
+
+It didn't sound like a suggestion.
+
+Estanislao glanced towards the back of the workshop. Mauro was putting tools away, not yet aware of what was happening.
+
+"I'll go and come back," he said. "Five minutes."
+
+---
+
+The black car was waiting two blocks away, in a side street almost without light. A street lamp was blinking sickly, casting shadows that danced over the broken asphalt.
+
+Outside, the same as always: tinted windows, immaculate bodywork, engine purring low. Inside, the atmosphere was different.
+
+The man with the neat beard was not smiling.
+
+"Very quiet you've gone, Estanislao," he said, when the lad closed the door. "You stopped answering, stopped being available. I'm starting to like you… but you're making things complicated for me."
+
+Estani said nothing.
+
+"Let's keep it short," the Boss continued. "I'm going to ask you a favour. It's not free, it's not charity — it's business: you do something, money gets made, I decide what we do with that money."
+
+Estanislao clenched his jaw.
+
+"I don't work for you anymore," he said. "I told you."
+
+The man settled back in his seat.
+
+"You already worked for me," he replied. "That doesn't get erased. You already know how it goes — you know the people, you know the streets. If I let someone who's already been inside just walk away clean with no consequences, the message that leaves in the neighbourhood is: 'you can use the network, learn the ropes, then go legal… and nothing happens.'"
+
+He fixed his gaze on him.
+
+"If your workshop was full of work," he added, "and one of your lads did that to you — would you be fine with it?"
+
+The silence was the only answer.
+
+---
+
+"I'm not asking you to kill anyone," said the Boss. "Here's what I'm saying: one route. Just one. One of the quiet ones. Box, address, time. You take it, they open up, you drop it, you leave, done."
+
+He made a gesture with his hand, as if tracing a simple operation in the air.
+
+"The money that comes out of that isn't 'yours,'" he clarified. "It's the structure's. What we keep in motion. Now…" — he glanced sideways at him — "…the structure can decide to use a part of it to help you. Depends on how you behave."
+
+There was the trap.
+
+"If you do it well," he went on, "we can talk about possibilities. Maybe we lend you money to expand the workshop. Maybe we bring you clients who pay cash. Maybe we buy parts off you under the table for other things. Not partners…" — he smiled — "…but close."
+
+The word *possibilities* stuck to the back of Estanislao's neck.
+
+It was exactly what he didn't have: breathing room, margin, options.
+
+---
+
+He tried to picture the alternative: saying no.
+
+He mapped it out in his head:
+
+The Negro's motorbike, which he still depended on for certain things.
+
+His mother and grandmother's house, on a block where everyone knew very well who called the shots.
+
+Mauro's workshop, just starting to become visible as "something more" in the area.
+
+Ramiro, who had definitively chosen the other path.
+
+It wasn't heroism. It was fear mixed with calculation.
+
+"One route," he said, finally. "One. And after that you don't ask me for anything else."
+
+The man looked at him, amused.
+
+"You love laying down conditions," he replied. "Keep this phrase in mind, Estanislao: *in this game, nobody sets all the conditions.* But fine: one route."
+
+---
+
+The delivery itself was not spectacular.
+
+A moonless night, dirt streets that turned to mud with the early-morning dew. The smell was of damp, scrubland, and something chemical that Estanislao chose not to identify.
+
+Ordinary bag, box inside. Clear address. Doorbell, door ajar, hand that takes, notes that go in. No chases, no film scenes. Just a dark transaction at a house with rusted bars and a yard where weeds grew between rubble.
+
+On the way back to the car, the Boss counted the money quickly, barely glancing at it, and slipped it into a small black zip-up bag.
+
+"Done," he said. "That doesn't exist for you anymore. It wasn't in your hands. It's not your decision. The structure handles it."
+
+Estanislao felt something like relief and revulsion at the same time: the dirty money hadn't reached his pocket, but it had passed through him enough to dirty his day.
+
+"So that's it," he said. "I did what you asked."
+
+The man held his gaze a second too long.
+
+"For now," he answered. "I told you: nobody sets all the conditions."
+
+Before Estani got out, he added:
+
+"Still, I'll say one thing: if the workshop collapses someday, the door stays open. In the end, all the poor little ones in this country come looking for 'possibilities' here. Don't be the only one with too much pride."
+
+---
+
+He got back to the workshop with his body tense, shoulders hard as if carrying something invisible. The cold of the night had got into his bones and wouldn't leave.
+
+Mauro was putting things away in silence, the radio on low — a tango programme they put on at that hour, voices from another century speaking of lost loves and street corners that no longer existed.
+
+"You left suddenly," he said. "Something happen?"
+
+Estanislao hesitated, but he didn't lie.
+
+"The black car squeezed me," he said. "They made me do a run. One. They didn't give me a penny. Just made clear that 'if I need something,' the structure can 'help.'"
+
+Mauro shut the toolbox with a sharp bang.
+
+"They're marking you," he said. "Even without paying you, they know you'll come back if they press where it hurts: in the need."
+
+He leaned against the workbench.
+
+"Listen to me carefully," he added. "The fact that you haven't seen or touched that money is the only thing that saves you a little today. You don't have it, you didn't use it, you don't associate it with anything good. That's key."
+
+He scratched his beard.
+
+"And the 'almost partners' thing," he continued. "That's the most dangerous thing they said to you. The moment you start believing you can combine my world with theirs without dirtying either one — you're done."
+
+Estanislao ran his hand over his face.
+
+"I'm not going back," he said. "I don't want to live off your favours or the State's favours. I just…" — he searched for words — "…I'm scared I won't make it on my own."
+
+Mauro looked at him with something that was half anger, half understanding.
+
+"We're all scared of that," he replied. "The difference is what you do with that fear."
+
+---
+
+The next day, the greengrocer came to test the frame.
+
+He was a dark-complexioned man of about fifty, with big, cracked hands from loading crates since before dawn. He wore a rural workers' union T-shirt — though he had never worked in the fields — and a smile of uneven teeth that lit up his face.
+
+He hung bags on it, stacked crates, hit the pipes with his closed fist. The metal answered with a solid, reliable sound.
+
+"It's a tank, maestro," he said. "Holds everything. And cheaper than the others to boot."
+
+He put a wad of small, mixed notes into Mauro's hand.
+
+"That's the outstanding deposit," he said. "And if the butcher likes what you did, he'll call you next week."
+
+Mauro counted quickly.
+
+"With this we pay a good chunk of the gas," he said. "And we've already got another potential job on the horizon."
+
+It wasn't much. But it was money that came with a name and an invoice — not with silence and dark street corners.
+
+Estanislao felt it in his body: that money sat differently in the hand than the small black bag that had passed through his fingers.
+
+---
+
+That evening at *La Escalera*, Julián noticed the mix of tension and relief on Estani's face.
+
+"Something bad and something good happened to you in under 48 hours," he said. "I can see it on your forehead."
+
+Estanislao told him just enough: the pressure, the unpaid run, the "open door" they had left him, and the greengrocer's frame that had come out well.
+
+"I feel like I'm walking between two riverbanks in a borrowed boat," he said. "On one side is the 'poor little thing, I'll help you' of the State and the unions. On the other, the 'poor little thing, I'll give you possibilities' of the black car. And in the middle, Mauro, me, and two or three clients who pay fairly and nothing more."
+
+Julián picked up a marker and wrote on the board:
+
+**"FALSE POSSIBILITIES"**
+vs
+**"SLOW POSSIBILITIES"**
+
+"The false ones," he explained, "are the ones that depend on someone with power giving you permission: a politician, a Boss, a manager, a drug lord. They come packaged as an 'opportunity.' But in the fine print it always says: *'as long as you're useful to me.'*"
+
+He underlined it.
+
+"The slow ones," he continued, "are the ones that depend on you building something: a trade, a workshop, a network of clients, a notebook full of ideas. They don't come with immediate applause or fast money. The fine print there says: *'you'll get tired and you'll doubt yourself a hundred times.'*"
+
+He looked at Estani.
+
+"Which one do you want written in your notebook when you're forty?" he asked. "*'I lived off the possibilities others gave me'* — or *'I invented my own, even if they were smaller'?*"
+
+Estanislao didn't answer out loud. But the question hung inside him.
+
+---
+
+That night, in his room, he opened his notebook.
+
+The last pages were a collage of scenes: the soup kitchen, plans, speeches, workshops, inspectors, union officials, businessmen crying on television, the black car, Mauro, Julián.
+
+He realised they were no longer just memories.
+
+They were *cases*.
+
+On a new page, in the middle, he wrote:
+
+*The Theory of the Poor Little One*
+
+Underneath, he began to jot down, almost as if making an index:
+
+*Poor little one as an excuse not to demand more of yourself.*
+
+*Poor little one as a weapon to take from someone else (via the State or by force).*
+
+*Poor little one in the neighbourhood: "it's not for the likes of you."*
+
+*Poor little one in business: "they can't compete with me."*
+
+*Poor little one in the middle class: "the country owes me."*
+
+*Poor little one in crime: "here we give you the possibilities the system denies you."*
+
+He stared at that for a long time.
+
+For the first time, he didn't feel alone in *suffering* the system. He felt like he was starting to *understand* it.
+
+And something inside him said that if he didn't put it into words, he would end up speaking the same language as everyone else:
+
+the language of the poor little one who resigns himself,
+
+or the language of the sharp operator who takes advantage.
+
+He chose to try a new one.
+
+He started to write.

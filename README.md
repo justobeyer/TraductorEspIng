@@ -8,7 +8,7 @@ Traduce Español Inglés
 | Archivo / File | Descripción |
 |---|---|
 | [`La Teoría del PobrecitoVersion80.docx`](La%20Teoría%20del%20PobrecitoVersion80.docx) | Original en español |
-| [`TeoryEng.md`](TeoryEng.md) | **Archivo de trabajo principal (Markdown)** — Prólogo, Capítulos 1–18 completos en inglés; capítulos siguientes se irán agregando uno por uno |
+| [`TeoryEng.md`](TeoryEng.md) | **Archivo de trabajo principal (Markdown)** — Prólogo, Capítulos 1–19 completos en inglés; capítulos siguientes se irán agregando uno por uno |
 | [`teoryEng.docx`](teoryEng.docx) | Traducción en formato Word — Título, Prólogo y Capítulo 1 en inglés |
 | [`The Theory of the Poor Little One - Prologue and Chapter 1.docx`](The%20Theory%20of%20the%20Poor%20Little%20One%20-%20Prologue%20and%20Chapter%201.docx) | Copia de la traducción inicial (referencia) |
 
@@ -34,4 +34,5 @@ Traduce Español Inglés
 - **Capítulo 16 / Chapter 16:** *El Precio de No Competir* → *The Price of Not Competing*
 - **Capítulo 17 / Chapter 17:** *La Visita que Cuida* → *The Visit That Protects*
 - **Capítulo 18 / Chapter 18:** *Los que Defienden y los que Ofrecen* → *Those Who Defend and Those Who Offer*
-- **Capítulo 19 y siguientes / Chapter 19 onwards:** pendiente de traducción *(próximamente)*
+- **Capítulo 19 / Chapter 19:** *Dos Deudas* → *Two Debts*
+- **Capítulo 20 y siguientes / Chapter 20 onwards:** pendiente de traducción *(próximamente)*

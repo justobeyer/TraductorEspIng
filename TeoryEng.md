@@ -3850,3 +3850,281 @@ The country hadn't changed. The State kept handing out "protection" as if it wer
 But there, inside a small workshop with no bright signs, two men refused to accept that being "protected" meant not being allowed to try anything.
 
 And even though nobody was going to write a story about it, it was precisely in that tiny point that the Theory of the Poor Little One met real resistance.
+
+---
+
+## Chapter 18 – *Those Who Defend and Those Who Offer*
+
+The workshop was different — not by choice.
+
+Four days had passed since the inspection, and each of those days had felt like a month. Mauro was barely sleeping — Estanislao could see it in the ever-deepening shadows under his eyes, in the faint tremor of his hands as he held his morning coffee, in the long silences between sentences. The workshop had changed not because they had wanted to improve it, but because they had been forced to choose between complying or closing.
+
+The smell was no longer just metal and sawdust. There was a new scent — the chemical perfume of fresh paint on the mandatory signs, the plastic of the newly purchased fire extinguisher, the disinfectant Mauro had mopped the floor with because "if they come again, I don't want them to have anything to say about the dust."
+
+Outside, the day was grey but rainless — one of those June days where the cold gets into your bones and doesn't leave until you lie down. The dry tree at the side of the shed swayed in the wind, and its bare branches made a noise that sounded like complaint, a mute protest against a world that kept turning without asking it anything.
+
+New signs hung on the walls: "HARD HAT MANDATORY," "EMERGENCY EXIT," "DANGER ZONE." Black letters on yellow backgrounds, like warnings of a danger that nobody used to name and was now everywhere. The red fire extinguisher hung gleaming, almost provocative, in the exact spot where before there had been a photo of the football team Mauro had followed since childhood.
+
+The safety goggles sat on the workbench, still with the price tag attached — a price that had struck Estanislao as obscene when Mauro mentioned it, almost half a month's wages from odd jobs — and the certified gloves hung from a hook by the door, still stiff because nobody had used them yet.
+
+Mauro had spent what he didn't have to ensure that the inspection report didn't become a closure order. He had borrowed from a cousin who lived in the city centre, sold some old tools he kept "just in case," and accepted an advance from the greengrocer in exchange for a discount that pained him deeply. All to comply with regulations that, according to him, "nobody invented who knew what it means to build a workshop from nothing."
+
+"Done," he said, looking around. "If they're still not satisfied with this, let them come and do the work themselves."
+
+Just as he finished the sentence, the doorbell rang.
+
+It wasn't the municipal motorbike. It was three people walking, slowly, with the air of knowing exactly what they had come for.
+
+The first: stocky, shirt untucked, vest with an embroidered logo: *"Union of Metal Workers and Allied Trades – Branch F."*
+
+The second: younger, tight black T-shirt, tattoos, folder under his arm.
+
+The third: a woman with her hair tied back, glasses, and a neutral expression — she wore a hanging lanyard and carried a notebook.
+
+"Good morning," said the man in the vest, extending his hand without waiting for a response. "I'm Omar, zonal delegate for the union. We've come for a quick chat. Mauro, right?"
+
+Mauro clenched his jaw.
+
+"That's me," he said. "Are you here to protect us too?"
+
+The lean one in the black T-shirt smiled without humour.
+
+"We're not the State, maestro," he said. "We're the ones who actually defend workers. Poor little things otherwise — anyone can walk all over them."
+
+There it was again — the word, like a verbal crutch.
+
+---
+
+They came in without explicitly asking permission, like people who know they have divine right.
+
+They looked over the machines, the workbenches, the iron bars, the new untouched goggles.
+
+"Small workshop, but dangerous," Omar remarked. "How many workers do you have?"
+
+"There's me and him," Mauro replied, nodding towards Estanislao. "For now."
+
+The one in the black T-shirt opened his folder.
+
+"Look, Mauro," he said, in the tone of a salesman. "The thing is simple. Any person who touches a metal machine in this area falls under our collective agreement. We fight for them, we negotiate pay rises, we guarantee conditions. There can't be metalworking without union presence. It's illegal. And it's unfair."
+
+The woman was taking notes without looking up.
+
+Mauro crossed his arms.
+
+"He's on a trial basis," he said. "I'm not even sure yet that I can keep him on permanently. I'm not a factory with hundreds of workers. I'm a workshop trying not to die."
+
+Omar raised his hands, conciliatory.
+
+"Exactly why we've come to help you," he said. "If you organise with us, you're covered. That said: you'll have to bring the workshop into the collective agreement, pay the solidarity fee, respect the job categories, the contributions, the minimums. Nothing unusual. What's appropriate. We don't want the poor little things who work for you ending up earning peanuts."
+
+Mauro let out a short, joyless laugh.
+
+"And if I can't afford all that?" he asked. "I close and that's that?"
+
+The lean one in the black T-shirt answered without blinking:
+
+"If you can't pay what the agreement stipulates, maybe you're not in a position to run a workshop," he said. "Not everyone can be a boss, Mauro. Poor little thing too — the worker if you've got him on scraps."
+
+The phrase "not everyone can be a boss" hung in the air.
+
+---
+
+Estanislao looked at the woman, who was still taking notes.
+
+"And me?" he asked. "Is anyone going to ask what I want? I mean — whether I want to be in this agreement, whether I prefer this to having no work at all, whether it seems fair to me or not."
+
+The woman looked up, surprised to be addressed directly.
+
+"We represent everyone," she said. "Even if some don't understand it yet. We can't go around asking one by one. That's what organisations are for. Otherwise the poor little things end up fighting each other while the bosses do whatever they like."
+
+*"We represent everyone."* Nothing new, but it still landed like a blow.
+
+---
+
+Mauro took a deep breath.
+
+"What happens if I don't sign anything with you?" he asked.
+
+Omar's expression shifted slightly.
+
+"Things happen that we don't want to happen," he said, cordial but firm. "We could escalate this to the central body, request more frequent inspections, report that there's unregistered labour. And you know how it goes: if the State is angry and the union is too, the one caught in the middle is the workshop. Don't make me have to treat you like an exploiter, Mauro. Nobody wants that. You're one of us. But rights are non-negotiable."
+
+The subtext was clear: *get in line or we'll make your life impossible.*
+
+---
+
+When they left, they left behind a glossy leaflet with the union logo — photos of barbecues, rallies, flags. And a soft threat floating in the air.
+
+Mauro put his hands on the workbench and stood there with his head bowed.
+
+"First the State comes to protect you from me," he said, quietly. "Now the union comes to protect you from the State and from me. If this keeps up, the only thing left free for you to decide is… whether to stay on without a workshop."
+
+Estanislao didn't know what to say.
+
+---
+
+That afternoon, the workshop fell silent.
+
+At the hour when the sun was beginning to go, a familiar engine sound was heard. Not that of a municipal motorbike. The sound of a car with a deep exhaust, music low, tinted windows.
+
+The black car.
+
+It pulled up in front of the workshop like someone visiting old acquaintances.
+
+The window came down a few centimetres.
+
+The same man as always — neat beard, understated chain, calm smile.
+
+"Mauro, maestro…" he said. "Haven't seen you looking this worried in a while. Everything alright?"
+
+Mauro fixed his gaze on the car.
+
+"What do you want?" he asked.
+
+The man shrugged.
+
+"Nothing in particular," he replied. "Word reached me that they're 'taking care of you too much.' Inspections, unions, paperwork, deadlines. Seems like some people don't like small operators who think for themselves."
+
+He looked at Estanislao and smiled.
+
+"And you, Estani…" he said. "Thought you'd disappeared. Figured you'd fallen in love with a book for good."
+
+Estanislao felt the old pull in his chest.
+
+"I'm working here," he replied, flatly.
+
+The man leaned on the steering wheel.
+
+"So I see. And I'm glad…" he said. "But tell me something: do you actually think that these people" — he gestured vaguely towards the council, the union, "the system" — "are going to let a little workshop like this grow too much? Don't be naïve. These people like extremes: poor little dependants or big friendly giants. The ones in the middle, like you two, are surplus."
+
+A tense silence fell.
+
+"Look," he continued. "I'm not here to tell you to close or abandon your dreams, Mauro. On the contrary. I'm just reminding you that if you need 'oxygen,' we're still moving things. There are orders, there are routes, there's money. You could make different kinds of parts. More discreet. Less paperwork. And you, Estani, you already know how it works: we don't ask for qualifications, union cards, or certified hard hats. Just loyalty."
+
+The offer was in the air without being stated outright.
+
+Mauro gritted his teeth.
+
+"You know what the difference is between them and you?" he said. "They kill me slowly, with paperwork. You kill me fast, with bullets. And both things have one thing in common: in the end, the one who ends up dead is me, not you."
+
+The man in the car laughed, softly.
+
+"So dramatic, Mauro…" he said. "I'm just saying that life is short. Being a volunteer poor little one doesn't pay. You've got machines, a set-up workshop, contacts in the neighbourhood. I've got cash flow, you need money. We can help each other. The State cuts off your air — we give you an extra tube."
+
+He turned towards Estanislao.
+
+"You're in the same boat," he added. "You can keep playing the quiet hero in a workshop that might not make it to the end of the month, putting up with your mum and your gran telling you you're killing yourself for nothing… Or you can make a shorter, more intense effort, earn real money, set yourself up, and retire. Poor little thing — the one who kills himself so others eat, without ever tasting what it's like to be on the other side."
+
+The phrase hit him directly in the part of his head where the fear of never making it still lived.
+
+---
+
+Mauro took a step forward.
+
+"Listen to me carefully," he said. "I'm not going through all this mess — I'm not putting up with inspectors, unions, and invoices — just to end up as your supplier."
+
+The man looked at him now, without smiling.
+
+"Don't be an idiot, Mauro," he replied. "The system isn't going to applaud your morals. When you fall, they won't put you on a board as an example. At least if you play with us, you know the rules. Over there" — he pointed to the grey buildings in the background — "the rules change every day… and never in your favour."
+
+---
+
+The sun had already gone.
+
+Estanislao felt the weight of all the voices in his head:
+
+*The inspectors: "poor little workers, they need to be protected."*
+
+*The union: "poor little things if we don't represent them — the bosses will use them."*
+
+*His mother: "poor little thing if you kill yourself and they leave you with nothing."*
+
+*The man in the car: "poor little thing if you kill yourself honestly and never get anywhere."*
+
+All of them — different masks on the same offer: *let someone else decide for you, let someone else save you, let someone else buy your surrender to stop competing at a discount.*
+
+Mauro broke the silence.
+
+"I don't know if I'm going to win," he said, his voice tired but hard. "Most likely I'll lose. But if I lose, I want to know I did it fighting on my own terms. I'm not going to be a client of the State or a client of yours."
+
+He crossed his arms.
+
+"And Estanislao…" he added, glancing to his side. "Neither is he."
+
+The man in the car smiled one last time, but now without warmth.
+
+"Remember that pride doesn't put food on the table, eh," he said. "I say it with affection. Don't come crying to me later saying 'poor me, nobody gave me a hand.'"
+
+He raised the window.
+
+Before pulling away, he let a phrase float in through the crack:
+
+"Both of you are playing a game this country hasn't had prizes for in a long time."
+
+The car drove off slowly, without the sound of a getaway. It didn't need to. It knew the temptation didn't disappear with its absence.
+
+---
+
+Inside the workshop, the silence became dense again.
+
+Mauro sank onto a bench.
+
+"I feel like throwing up," he said.
+
+Estanislao sat down on the floor, leaning his back against the wall.
+
+"Me too," he admitted. "Between the ones who say they protect you and the ones who offer to help you 'live a little,' you don't know which one to tell to go to hell first."
+
+Mauro laughed, dry.
+
+"They're the same creature," he said. "Some buy you with fear, others with money. But they all need you on your knees."
+
+---
+
+That night, Estanislao arrived home later than ever.
+
+His mother was waiting for him with her arms crossed.
+
+"Where were you?" she asked. "I called you three times."
+
+"At the workshop," he replied. "There was trouble with a union. And then the black car came."
+
+His grandmother crossed herself.
+
+"Don't go getting mixed up with those people!" she said. "Poor little thing if they catch you in the middle."
+
+Estanislao sat down, exhausted.
+
+"Seems like 'poor little thing' is the password for everything," he murmured. "Poor little thing if I work, poor little thing if I don't work, poor little thing if I want to do something of my own, poor little thing if I get involved with the State, poor little thing if I don't."
+
+His mother looked at him, confused.
+
+"I just don't want you to suffer," she said.
+
+He raised his eyes.
+
+"I'm going to suffer either way, Mum," he replied, calm, almost resigned. "The difference is whether I suffer doing something I choose, or I suffer watching others choose for me 'for my own good.'"
+
+She didn't know what to answer.
+
+---
+
+In his notebook that night, he wrote:
+
+*"Today the representatives of the worker told me that without them I'm dangerous. Today the representative of crime told me that without him I'm an idiot. Everyone speaks in the name of my wellbeing. Nobody lets me decide in peace."*
+
+And he added:
+
+*"There are two kinds of cages:
+— The one they give you with bars made of 'rights' and 'protection.'
+— The one they offer you with bars made of 'easy money' and 'quick respect.'
+
+Outside both of them it's cold. But it's the only place where you can walk."*
+
+He closed the notebook and, for the first time, realised something brutal:
+
+There were no guarantees that the path he and Mauro were on would end well. In fact, the most likely outcome was that it would end somewhere between mediocre and bad.
+
+But if he accepted going back to the role of poor little one, or entering the role of the sharp operator, he knew exactly how it would end: just like everyone else.
+
+And something, growing stronger each day, told him he'd rather risk losing as an exception than "win" as part of the herd.

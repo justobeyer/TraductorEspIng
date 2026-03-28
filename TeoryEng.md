@@ -4392,3 +4392,252 @@ or the language of the sharp operator who takes advantage.
 He chose to try a new one.
 
 He started to write.
+
+---
+
+## Chapter 20 – *Bad Example*
+
+The workshop had never been so "correct."
+
+August had arrived with a cold that bit your face and a southerly wind that crept through every gap in the shutter. The sun came in at a slant through the skylights, drawing rectangles of yellowish light on the oil-stained cement floor.
+
+Safety signs on every wall — black letters on a yellow background — a new fire extinguisher hanging from its regulation bracket, helmets and goggles lined up on a shelf Mauro had knocked together from pipe offcuts, an evacuation plan drawn neatly in blue marker. Quick glance: it looked like a place that "did things properly." Slow glance: it was a place that *could barely breathe.*
+
+Mauro swept the same section for the third time, as if trying to convince the universe that visible order would make up for the chaos in the accounts. The broom scraped the floor with a dry, monotonous sound.
+
+"If my old man could see this," he said, "he'd laugh. Forty years in a factory without a hard hat, without a sign, without anything. And here we are, in debt because we followed the safety rules."
+
+Estanislao smiled, tired.
+
+"And if your old man saw the black car, he'd faint," he added. "At least back then, the illegal ones didn't share a corner with the ones who 'protect' you."
+
+Mauro was about to reply when the radio, playing softly, cut across the music.
+
+"Breaking news," announced the presenter. "The governor will hold a press conference alongside union and business representatives to present the 'San Aurelian Agreement for the Protection of Work.'"
+
+Mauro pressed his lips together.
+
+"Protection," he muttered. "Whenever they say that, some little guy gets it."
+
+---
+
+On the old television set in the corner bar — a fat nineties CRT that Cacho refused to replace because "these things last forever" — the scene looked like an expensive school ceremony.
+
+The bar smelled of reheated coffee, of midday milanese fillets that were still sitting on the hotplate, and of cigarettes even though smoking inside was banned. The walls had that decades-of-nicotine yellow, with photographs of footballers nobody remembered any more.
+
+Mauro and Estanislao watched from a table at the back, with two cortados going cold in their cups.
+
+On the stage:
+
+The *governor*, dark suit, paternal tone.
+
+The *general secretary of the provincial metalworkers' union.*
+
+A *spokesperson for the chamber of industry.*
+
+Behind them, a huge banner:
+
+**"PACT FOR THOSE WHO HAVE THE LEAST."**
+
+The governor took the microphone:
+
+"Our workers have been victims of neglect, unfair competition, imported crises," he said. "For too long we have abandoned our *poor little* employees to the law of the jungle. Today, together with the unions and responsible businesses, we sign a historic agreement: more controls, more support, more protection. Not a single San Aurelian job is going to be left to chance."
+
+Applause.
+
+The union official spoke next:
+
+"This agreement gives us tools," he said. "We are going to enter every workshop, every factory, every shed. We are going to make sure there is not a single worker without a collective agreement, without social security contributions, without representation. We will no longer tolerate 'ghost workshops' where comrades are exploited. Poor little things, if we weren't there for them."
+
+The business spokesperson rounded it off:
+
+"Serious companies support this," he stated. "We are tired of competing with pseudo-workshops that pay cash in hand, without a licence, without rules. These so-called 'informal ventures' are not part of the solution — they are part of the problem. Either they get in line, or they're out of the game."
+
+In the bar, a man summarised:
+
+"Fair enough, mate. You've got to put a stop to the chancers. Poor little workers."
+
+Mauro set his glass down on the table with too much force.
+
+"You know who the 'pseudo-workshops' are?" he said to Estani, without taking his eyes off the screen. "Us. The ones who don't have the backing to be a 'serious company,' but don't want to exploit anyone either."
+
+---
+
+Two days later, the pact came down from the screen and landed on the footpath.
+
+First, the *Municipal Inspection van.* Behind it, a grey car with the logo of the *Provincial Ministry of Labour.* And bringing up the rear, the motorbike with the *metalworkers' union* stickers.
+
+Mauro watched the convoy from inside the workshop and muttered:
+
+"They come in a combo now. Protection delivery."
+
+Four people got out:
+
+The municipal inspector from the previous time.
+
+A provincial official in a light-coloured suit carrying a blue folder.
+
+Omar, the union delegate, with his embroidered vest.
+
+A fourth man who didn't introduce himself but looked at everything with the eyes of a notary: "the technician."
+
+"Good morning, Mr. Grieta," the official greeted him, professionally. "We are here as part of the new agreement. You have had previous inspections, so we want to verify whether you have brought yourself into compliance."
+
+Omar smiled, affably.
+
+"Easy, Mauro," he said. "We're here to help. We just want to make sure the comrades aren't left unprotected. Poor little things."
+
+That word, again, landed like a rubber stamp.
+
+---
+
+The inspection was more thorough than the previous one.
+
+"Licence expired," noted the technician, without looking at Mauro.
+
+"There are no formal records of safety training," added the official.
+
+"The comrade still isn't covered under our collective agreement," concluded Omar, pointing at Estanislao. "That's serious. He's our worker, whether you understand that yet or not."
+
+Mauro tried to explain:
+
+"I'm in the process of sorting everything out," he said. "I put up the signs, I bought the equipment, I don't have any more money to pay for training courses and get a new licence in fifteen days. I don't want to screw anyone over. I want to keep working."
+
+The official looked at him with a rehearsed expression of empathy.
+
+"We understand," she said. "But the system has to protect itself from those who say 'I don't want to exploit anyone' but, without meaning to, end up doing exactly that. The worker cannot pay with his health and his rights for his employer's lack of business capacity. Poor little things."
+
+Mauro exhaled sharply.
+
+"Business capacity," he repeated. "It's easy to say that when the State pays your rent."
+
+Omar weighed in:
+
+"Look, Mauro," he said, in the tone of a friend offering advice. "If this is too much for you, maybe the best thing is to close up nicely. We can try to get the comrade placed in a factory that's properly run — with a job category, a union, the works. And you… well, you can go back to being a worker. Not everyone was born to be a boss. That's just how it is."
+
+He glanced at Estani.
+
+"It'd do you good," he added. "Healthcare, a Christmas bonus, holidays. Not this little project that could be brought down any moment. Poor little thing if you get left hanging with him."
+
+---
+
+In the end, they left a new notice.
+
+Big words: **"FINAL WARNING BEFORE CLOSURE."** Deadline: ten days. "Technical" recommendation: either regularise everything (with figures Mauro knew were impossible) or "consider an orderly cessation of activities."
+
+When they left, the workshop fell silent, except for the faint hum of a fluorescent tube.
+
+Mauro rested his hands on the workbench and bowed his head.
+
+"They don't want us legal, Estani," he said, after a while. "They want us gone… or in line."
+
+Estanislao felt the weight in his chest.
+
+"In the neighbourhood they're already saying you're a bad example," he said. "That you want to 'play at being a boss' without a party, without a union, without a godfather. That sooner or later you'll fall… and if I stay with you, I'll fall with you."
+
+Mauro laughed, without any joy.
+
+"Perfect," he said. "If this neighbourhood calls someone who pays, teaches, doesn't sell drugs and doesn't live off welfare a 'bad example'… we must be doing something right."
+
+He walked over to the door and looked out at the street.
+
+"You know who doesn't appear in any official notice?" he asked.
+
+At that exact moment, moving slowly past as if out for a Sunday drive, came the *black car.* Windows down just slightly. The Boss's hand rising in a relaxed wave.
+
+"Him," said Mauro. "He's not inspected by the council, not covered under the union's agreement, not served with warnings by the government. And yet everyone knows him. They even seem to look the other way, just a little."
+
+Estanislao followed the car with his eyes.
+
+He realised that, in practice, there were *two types of "illegal"*:
+
+Those who wanted to do something properly without a "godfather" — and were treated as enemies.
+
+Those who broke every rule with the right "arrangements" — and nobody really bothered.
+
+---
+
+That night, at the corner kiosk, echoes of the pact were still circulating.
+
+"Hey, is it true they're going to shut Grieta down?" said one.
+
+"Well… if he's not up to code, he should close," replied another. "You've got to look after the workers. Poor little things."
+
+"Besides, he got ideas above his station," added a third. "Around here it's always been the same: either you're with the union, the party, someone… or you don't last. It's not good for the young lads to think they can do everything on their own. They end up hurting themselves."
+
+*"They end up hurting themselves."* As if trying something independently was almost an offence.
+
+---
+
+The next day, Ramiro crossed paths with Estani on the footpath.
+
+"You know what people are saying about you, right?" he said, without preamble. "That you're a likeable lunatic, but dangerous. If things go well for you, you're a bad message for everyone. If things go badly, you'll end up coming to the same place as the rest."
+
+"What place?" asked Estani, though he knew the answer.
+
+Ramiro made a vague gesture: the corner, the whole neighbourhood, the black car in the background.
+
+"There's no room for heroes here," he said. "Only for poor little ones who know who to cry to, or for sharp operators who know who to squeeze. Everything else — the system takes care of erasing it."
+
+---
+
+That afternoon, at *La Escalera*, Estanislao told Julián everything: the governor's press conference, the joint inspection operation, the union's speech, the official's elegant threat, the black car cruising past as if nothing had happened.
+
+"So, teacher, which side are you on if you want to do things right?" he asked. "If the council squeezes you, the union squeezes you, the government squeezes you, the big companies want you out, and the black car offers you 'possibilities'… how do you get out? Mauro and I are the bad example. Not for being bad. For being disobedient."
+
+Julián stayed quiet for a few seconds, looking at the blank board.
+
+Then he wrote, in the centre:
+
+**"SURPLUS."**
+
+And underneath:
+
+*"The one who refuses to be managed as a poor little one is surplus to requirements."*
+
+"The first thing," he said, "is to accept that in this system, *you are not going to get applause.* If you genuinely want to escape the role of poor little one, you will lose protection, friends, blessings. They will call you mad, ungrateful, dangerous, a bad example."
+
+He turned towards the group.
+
+"How do you get out?" he repeated. "There is no perfect plan. But there is one clear thing: you don't get out via the black car's road, or via 'the State as parent,' or via 'I'll save myself and to hell with everyone else.'"
+
+He took a breath.
+
+"Sometimes, you get out by lasting longer than they do," he continued. "Holding on. Learning. Building up just enough so you don't have to sell yourself to the first person who offers you a rescue. And above all, telling the story. Because as long as this stays inside your heads, they own the narrative. When someone writes it down, *it starts to change who does the telling.*"
+
+He looked at Estani, knowing something the rest of them didn't yet:
+
+"Maybe you won't be able to save the workshop," he said. "Maybe Mauro can't win this fight. But if you tell the story well — how this whole circus of poor little ones and squeezers worked — you'll leave a time bomb inside the heads of others."
+
+He smiled, wearily.
+
+"And that, in a country like this, is sometimes worth more than a licence."
+
+---
+
+That night, in his room, Estanislao opened his notebook again to the page with:
+
+*The Theory of the Poor Little One*
+
+And he added:
+
+*When the council, the union, big business, the government and crime all seem to be fighting each other, they are actually dividing up the map between them:*
+*— some manage fear,*
+*— others manage guilt,*
+*— others manage need,*
+*— and all of them need us to keep being poor little ones.*
+
+Below, as an underlined question:
+
+*"WHAT HAPPENS TO THOSE WHO DON'T WANT TO BE EITHER OF THE TWO THINGS:*
+*NEITHER POOR LITTLE ONES, NOR SHARP OPERATORS?"*
+
+He stared at that line.
+
+He knew the answer was not going to be kind. And that the pressure was going to build.
+
+He couldn't yet picture how quickly.
+
+But he sensed that if the system couldn't buy Mauro… it would try to *remove him from the board.*
+
+And that one way or another, they were going to come looking for him again.

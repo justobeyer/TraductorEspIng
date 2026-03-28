@@ -5244,3 +5244,169 @@ In the hospital, as the doctors stitched him up, Estanislao thought of something
 *"The system doesn't kill everyone who resists. Sometimes it leaves them alive so they can serve as an example of what happens to those who speak."*
 
 Now he was that example.
+
+---
+
+## Chapter 24 – *Poor Little One, the One Who Speaks*
+
+San Aurelio's public hospital smelled of cheap disinfectant, reheated food, and something deeper: fear. The corridors were full of people waiting for appointments that never came, trolleys with forgotten patients lined against the walls, nurses rushing between emergencies with the faces of those who had slept too little.
+
+Estanislao spent five days in a shared room with three other men: one with his leg in plaster who complained all night, another who coughed without stopping, and an old man who never spoke but watched everything with sad eyes.
+
+The bullet had gone in cleanly, missing vital organs. The doctors said it was "luck." He knew it was marksmanship: they had wounded him just enough for him to understand, but not so much that he would die.
+
+His mother arrived the first night, crying, her dress stained with cooking oil from the canteen where she had been working. "My poor little one," she kept repeating, and the word hurt Estanislao more than the wound.
+
+"I'm not a poor little one," he told her, his voice rough from the painkillers. "They did this to me *because* I'm NOT a poor little one. Because I wrote. Because I thought. Because I didn't stay still."
+
+His mother did not understand. Or did not want to understand.
+
+His grandmother came on the second day, rosary in hand and a bag of pastries she had bought spending money she didn't have. She sat down beside the bed, took his hand in her thin, calloused fingers, and said something Estanislao did not expect:
+
+"Your grandfather used to write too. Before they turned him into a drunk."
+
+Estanislao looked at her without understanding.
+
+"He wasn't born drinking. They broke him. Made him believe he was a poor little one who was good for nothing. And he believed it. And when you believe that, the bottle is the only way out they let you see."
+
+They stayed in silence. Through the window the afternoon sun came in, painting gold rectangles on the dirty sheets.
+
+"You haven't broken," his grandmother went on. "Not yet."
+
+Lucas arrived on the third day, with news.
+
+"The book is circulating more than ever. Since word got out that you were shot, everyone wants to read it. They're photocopying it everywhere."
+
+"The irony," said Estanislao. "They shoot me to shut me up and all they manage is to make more people listen."
+
+"That's how the system works," Lucas replied. "They don't understand that ideas can't be killed with bullets."
+
+That night, back in his room — they had discharged him with rest instructions he wasn't going to be able to follow — Estanislao opened the printed book. He held it with hands that were still trembling slightly.
+
+On the back cover, Lucas had added a new line without telling him:
+
+*"This book was written before its author was shot.*
+*We leave it as it is, without adding any drama.*
+*Reality took care of confirming, on its own, that the Theory of the Poor Little One was not just theory."*
+
+Estanislao smiled, despite the pain.
+
+"I'm not a hero," he said quietly. "I'm not a martyr. I'm someone who wrote."
+
+He opened the notebook one more time.
+
+He looked at all the pages filled with notes: the neighbourhood, the workshop, the union, the government building, the black car, his own hospital bed.
+
+And something hit him all at once:
+
+He had written all of that. A kid who for years had been told "that's not for the likes of you."
+
+He sat up, settled himself as best he could, and wrote:
+
+*"If after all this I go back to thinking of myself as a poor little one —*
+*too stupid to think, too small to write —*
+*their story wins.*
+
+*If I use what happened to me to play the tough guy —*
+*to climb the social ladder, to sell pity —*
+*their story wins too.*
+
+*The only thing that truly bothers them*
+*is that someone from below thinks, writes, and publishes*
+*without asking anyone's permission."*
+
+He stopped, breathed.
+
+He thought about everything he had seen since the book came out:
+
+Kids from the neighbourhood reading it in photocopies, crossing things out, adding their own notes (even correcting him).
+
+Middle-class people repeating phrases at talks, sometimes understanding, sometimes bending them to fit their own agenda.
+
+Upper-class people citing it at meetings, half serious, half as a "case study."
+
+Teachers, union officials, priests, politicians, drug lords — all of them wondering who had really written it.
+
+He added:
+
+*"The Theory of the Poor Little One started as things I was seeing.*
+*Now it no longer belongs to me.*
+
+*Anyone can take it:*
+*– the person from the neighbourhood who is tired of being told they can't,*
+*– the middle-class person who realised they also speak like a poor little one with a degree,*
+*– the upper-class person who looks in the mirror and sees someone who has everything needed to compete and prefers that nothing changes.*
+
+*Anyone can write their own version.*
+*Anyone can say: 'this doesn't add up for me'*
+*and write it down in a notebook."*
+
+He looked at the word "anyone" he had underlined.
+
+For the first time he understood that this was the most dangerous thing of all:
+
+that thinking, writing, and publishing required no permission from a party, a union, a university department, a company, or even from a "Boss."
+
+It only required that someone, quietly, say to themselves:
+
+*"I am not just a poor little one who receives stories.*
+*I can also tell them."*
+
+He continued:
+
+*"In this country they teach us that:*
+*– those from below only 'give testimony',*
+*– those from the middle class 'analyse',*
+*– those from the top 'decide'.*
+
+*The Theory of the Poor Little One breaks when:*
+*– someone from below analyses and decides to write,*
+*– someone from the middle class dares to see themselves in the mirror of the poor little one,*
+*– someone from the top stops casting themselves as a victim and acknowledges their own responsibility.*
+
+*Any one of the three can pick up a pen*
+*and write without asking anyone's permission."*
+
+He closed the notebook and looked at the book.
+
+He already knew:
+
+In the neighbourhood, some people read it in secret, so as not to look like a show-off.
+
+In the middle class, some recommended it at workshops; others criticised it in opinion columns.
+
+In the upper class, some underlined passages in private, never in public.
+
+Nobody had been left indifferent.
+
+In a forwarded message, he had read something that surprised him: a man in a suit, in a government office, had sent it to someone else:
+
+*"Read this. I don't like it, but some things are true.*
+*If we don't understand how they see us, it's going to blow up in our faces."*
+
+Unsigned, unacknowledged, almost apologising for having thought.
+
+Estanislao smiled.
+
+That was, in some way, what he had wanted: to force everyone — lower, middle, upper — to look into a mirror they had not ordered.
+
+He lay back slowly.
+
+Before turning off the light, he wrote the last line of the day:
+
+*"If this book is good for anything,*
+*let it not be for people to say 'what a brave kid',*
+*but for someone else, from wherever they are,*
+*to pick up a notebook and write their own theory*
+*without asking anyone's permission."*
+
+He turned off the light.
+
+The neighbourhood was still the same. The middle class was still debating. The upper class was still offering opinions from a distance.
+
+But, for the first time, across all those levels, there existed the concrete possibility that someone might think:
+
+*"I can also write what I see.*
+*I don't need anyone to authorise me to stop being just a poor little one in someone else's story."*
+
+And that idea — more than the book, more than the gunshot, more than any speech — was the real crack in the Theory of the Poor Little One.
